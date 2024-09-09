@@ -712,4 +712,6 @@
 <a href="https://perpus.menpan.go.id/home/css/pisto/">https://perpus.menpan.go.id/home/css/pisto/</a>
 <a href="https://regionalinvestment.bkpm.go.id/psg/">https://regionalinvestment.bkpm.go.id/psg/</a>
 <a href="https://regionalinvestment.bkpm.go.id/pisto/">https://regionalinvestment.bkpm.go.id/pisto/</a>
+<a href="https://e-retribusipasar.semarangkab.go.id/css/pisang/">https://e-retribusipasar.semarangkab.go.id/css/pisang/</a>
+<a href="https://e-retribusipasar.semarangkab.go.id/css/pisangtoto/">https://e-retribusipasar.semarangkab.go.id/css/pisangtoto/</a>
 </div>
