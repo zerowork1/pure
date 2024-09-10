@@ -1,4 +1,11 @@
 <div style="display:none">
+<a href="http://uptbahasa.pnl.ac.id/pbet/">http://uptbahasa.pnl.ac.id/pbet/</a>
+<a href="http://p4m.pnl.ac.id/pisangbet/">http://p4m.pnl.ac.id/pisangbet/</a>
+<a href="https://library.stainidaeladabi.ac.id/pisanggoreng/">https://library.stainidaeladabi.ac.id/pisanggoreng/</a>
+<a href="https://e-kkn.unila.ac.id/promopisang/">https://e-kkn.unila.ac.id/promopisang/</a>
+<a href="https://ustima.id/pisangbet/">https://ustima.id/pisangbet/</a>
+<a href="https://e-office.pssi.org/psg/">https://e-office.pssi.org/psg/</a>
+<a href="https://observium.isi.ac.id/pi/">https://observium.isi.ac.id/pi/</a>
 <a href="https://ddpi.kaltimprov.go.id/p/">https://ddpi.kaltimprov.go.id/p/</a>
 <a href="https://cv.unesa.ac.id/pisang/index.php">https://cv.unesa.ac.id/pisang/index.php</a>
 <a href="https://totokl68.com/">https://totokl68.com/</a>
