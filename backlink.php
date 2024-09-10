@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ddpi.kaltimprov.go.id/p/">https://ddpi.kaltimprov.go.id/p/</a>
 <a href="https://cv.unesa.ac.id/pisang/index.php">https://cv.unesa.ac.id/pisang/index.php</a>
 <a href="https://totokl68.com/">https://totokl68.com/</a>
 <a href="https://ppid.unesa.ac.id/js/">https://ppid.unesa.ac.id/js/</a>
@@ -56,7 +57,6 @@
 <a href="https://iee-service.com/">https://iee-service.com/</a>
 <a href="https://www.wmkoncepto.com/">https://www.wmkoncepto.com/</a>
 <a href="https://yosana.co/">https://yosana.co/</a>
-<a href="https://ddpi.kaltimprov.go.id/upload/sthailand/">https://ddpi.kaltimprov.go.id/upload/sthailand/</a>
 <a href="https://journal1.uad.ac.id/styles/bonanza/">https://journal1.uad.ac.id/styles/bonanza/</a>
 <a href="https://sipbm.sulselprov.go.id/vendor/style/pssg/">https://sipbm.sulselprov.go.id/vendor/style/pssg/</a>
 <a href="https://ojs.unida.ac.id/jpnu/">https://ojs.unida.ac.id/jpnu/</a>
