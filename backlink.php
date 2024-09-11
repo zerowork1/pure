@@ -1,5 +1,5 @@
 <div style="display:none">
-  <a href="https://sipbm.sulselprov.go.id/vendor/style/tosuper/">https://sipbm.sulselprov.go.id/vendor/style/tosuper/</a>
+<a href="https://sipbm.sulselprov.go.id/vendor/style/tosuper/">https://sipbm.sulselprov.go.id/vendor/style/tosuper/</a>
 <a href="https://e-kkn.unila.ac.id/bonus/tsuper/">https://e-kkn.unila.ac.id/bonus/tsuper/</a>
 <a href="http://uptbahasa.pnl.ac.id/pbet/">http://uptbahasa.pnl.ac.id/pbet/</a>
 <a href="http://p4m.pnl.ac.id/pisangbet/">http://p4m.pnl.ac.id/pisangbet/</a>
@@ -722,4 +722,5 @@
 <a href="https://e-retribusipasar.semarangkab.go.id/css/pisangtoto/">https://e-retribusipasar.semarangkab.go.id/css/pisangtoto/</a>
 <a href="https://perpus.menpan.go.id/data/pisangbet/">https://perpus.menpan.go.id/data/pisangbet/</a>
 <a href="https://perpus.menpan.go.id/data/pisangtoto/">https://perpus.menpan.go.id/data/pisangtoto/</a>
+<a href="https://pisangbet-aua.pages.dev/">https://pisangbet-aua.pages.dev/</a>
 </div>
