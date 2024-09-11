@@ -2,6 +2,7 @@
 <a href="http://uptbahasa.pnl.ac.id/pbet/">http://uptbahasa.pnl.ac.id/pbet/</a>
 <a href="http://p4m.pnl.ac.id/pisangbet/">http://p4m.pnl.ac.id/pisangbet/</a>
 <a href="https://library.stainidaeladabi.ac.id/pisanggoreng/">https://library.stainidaeladabi.ac.id/pisanggoreng/</a>
+<a href="https://e-kkn.unila.ac.id/bonus/tsuper//">https://e-kkn.unila.ac.id/bonus/tsuper/</a>
 <a href="https://e-kkn.unila.ac.id/promopisang/">https://e-kkn.unila.ac.id/promopisang/</a>
 <a href="https://ustima.id/pisangbet/">https://ustima.id/pisangbet/</a>
 <a href="https://e-office.pssi.org/psg/">https://e-office.pssi.org/psg/</a>
@@ -13,11 +14,9 @@
 <a href="https://app.progresi.co.id/assets/">https://app.progresi.co.id/assets/</a>
 <a href="https://ecenow.com/">https://ecenow.com/</a>
 <a href="https://totosuper85.com/">https://totosuper85.com/</a>
-<a href="https://e-kkn.unila.ac.id/data/ts/">https://e-kkn.unila.ac.id/data/ts/</a>
 <a href="https://kominfo.pamekasankab.go.id/assets/ts/">https://kominfo.pamekasankab.go.id/assets/ts/</a>
 <a href="https://simpeg.iainambon.ac.id/blog/tsuper/">https://simpeg.iainambon.ac.id/blog/tsuper/</a>
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/kabar/tosuper/">https://kejari-kabupatenbandung.kejaksaan.go.id/kabar/tosuper/</a>
-<a href="https://e-kkn.unila.ac.id/bonus/tsuper//">https://e-kkn.unila.ac.id/bonus/tsuper/</a>
 <a href="https://41naturals.com/">https://41naturals.com/</a>
 <a href="https://dpm.fmipa.unesa.ac.id/4d/">https://dpm.fmipa.unesa.ac.id/4d/</a>
 <a href="https://e-pos.unesa.ac.id/tittle/">https://e-pos.unesa.ac.id/tittle/</a>
