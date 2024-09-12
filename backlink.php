@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ejournal.uinib.ac.id/rank/ttsuper/">https://ejournal.uinib.ac.id/rank/ttsuper/</a>
 <a href="https://sipbm.sulselprov.go.id/vendor/style/tosuper/">https://sipbm.sulselprov.go.id/vendor/style/tosuper/</a>
 <a href="https://e-kkn.unila.ac.id/bonus/tsuper/">https://e-kkn.unila.ac.id/bonus/tsuper/</a>
 <a href="http://uptbahasa.pnl.ac.id/pbet/">http://uptbahasa.pnl.ac.id/pbet/</a>
@@ -76,9 +77,6 @@
 <a href="https://library.stikesmi.ac.id/admin/obc4d/">https://library.stikesmi.ac.id/admin/obc4d/</a>
 <a href="https://library.stikesmi.ac.id/admin/pisbet/">https://library.stikesmi.ac.id/admin/pisbet/</a>
 <a href="https://library.stikesmi.ac.id/admin/pisto/">https://library.stikesmi.ac.id/admin/pisto/</a>
-<a href="https://ejournal.uinib.ac.id/rank/top/">https://ejournal.uinib.ac.id/rank/top/</a>
-<a href="https://ejournal.uinib.ac.id/rank/pisbet/">https://ejournal.uinib.ac.id/rank/pisbet/</a>
-<a href="https://ejournal.uinib.ac.id/rank/pisto/">https://ejournal.uinib.ac.id/rank/pisto/</a>
 <a href="https://sipede.sidoarjokab.go.id/data/ttkl/">https://sipede.sidoarjokab.go.id/data/ttkl/</a>
 <a href="https://www.thaiviwat.com/wp-content/uploads/">Pisangbet</a>
 <a href="https://jurnal.umsu.ac.id/amerika/">https://jurnal.umsu.ac.id/amerika/</a>
@@ -473,7 +471,6 @@
 <a href="https://ting-fkip.ut.ac.id/ictl/sthai/">https://ting-fkip.ut.ac.id/ictl/sthai/</a>
 <a href="https://jni.ejournal.unri.ac.id/sgacor/">https://jni.ejournal.unri.ac.id/sgacor/</a>
 <a href="https://komnasham.go.id/koalisi/">https://komnasham.go.id/koalisi/</a>
-<a href="https://ejournal.uinib.ac.id/tsuper/">https://ejournal.uinib.ac.id/tsuper/</a>
 <a href="https://upt-lbk.uny.ac.id/profiles/index.html">https://upt-lbk.uny.ac.id/profiles/index.html</a>
 <a href="https://konaspai.uny.ac.id/sbt88/index.html">https://konaspai.uny.ac.id/sbt88/index.html</a>
 <a href="https://publikasipaw.kpu.go.id/zgacor/">https://publikasipaw.kpu.go.id/zgacor/</a>
@@ -495,14 +492,6 @@
 <a href="https://ppid.sambas.go.id/desa_mukti_raharja/sthai/">https://ppid.sambas.go.id/desa_mukti_raharja/sthai/</a>
 <a href="https://komnasham.go.id/berita/">https://komnasham.go.id/berita/</a>
 <a href="https://urologi.fk.usk.ac.id/top/">https://urologi.fk.usk.ac.id/top/</a>
-<a href="https://ejournal.uinib.ac.id/data/obcbet/">https://ejournal.uinib.ac.id/data/obcbet/</a>
-<a href="https://ejournal.uinib.ac.id/data/obctop/">https://ejournal.uinib.ac.id/data/obctop/</a>
-<a href="https://ejournal.uinib.ac.id/data/obc4d/">https://ejournal.uinib.ac.id/data/obc4d/</a>
-<a href="https://ejournal.uinib.ac.id/data/pisbet/">https://ejournal.uinib.ac.id/data/pisbet/</a>
-<a href="https://ejournal.uinib.ac.id/data/pisto/">https://ejournal.uinib.ac.id/data/pisto/</a>
-<a href="https://ejournal.uinib.ac.id/data/ts/">https://ejournal.uinib.ac.id/data/ts/</a>
-<a href="https://ejournal.uinib.ac.id/data/ttkl/">https://ejournal.uinib.ac.id/data/ttkl/</a>
-<a href="https://ejournal.uinib.ac.id/data/sbpk/">https://ejournal.uinib.ac.id/data/sbpk/</a>
 <a href="https://ejournal.uinsalatiga.ac.id/public/top/">https://ejournal.uinsalatiga.ac.id/public/top/</a>
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/jurnal/">https://kejari-kabupatenbandung.kejaksaan.go.id/jurnal/</a>
 <a href="https://siakad.uny.ac.id/sgacor/index.html">https://siakad.uny.ac.id/sgacor/index.html</a> 
