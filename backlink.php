@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://totosuper85.com/">https://totosuper85.com/</a>
 <a href="https://ejournal.uinib.ac.id/rank/ttsuper/">https://ejournal.uinib.ac.id/rank/ttsuper/</a>
 <a href="https://sipbm.sulselprov.go.id/vendor/style/tosuper/">https://sipbm.sulselprov.go.id/vendor/style/tosuper/</a>
 <a href="https://e-kkn.unila.ac.id/bonus/tsuper/">https://e-kkn.unila.ac.id/bonus/tsuper/</a>
@@ -15,7 +16,6 @@
 <a href="https://ppid.unesa.ac.id/js/">https://ppid.unesa.ac.id/js/</a>
 <a href="https://app.progresi.co.id/assets/">https://app.progresi.co.id/assets/</a>
 <a href="https://ecenow.com/">https://ecenow.com/</a>
-<a href="https://totosuper85.com/">https://totosuper85.com/</a>
 <a href="https://kominfo.pamekasankab.go.id/assets/ts/">https://kominfo.pamekasankab.go.id/assets/ts/</a>
 <a href="https://simpeg.iainambon.ac.id/blog/tsuper/">https://simpeg.iainambon.ac.id/blog/tsuper/</a>
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/kabar/tosuper/">https://kejari-kabupatenbandung.kejaksaan.go.id/kabar/tosuper/</a>
