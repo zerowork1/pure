@@ -3,6 +3,7 @@
 <a href="https://ejournal.uinib.ac.id/rank/ttsuper/">https://ejournal.uinib.ac.id/rank/ttsuper/</a>
 <a href="https://sipbm.sulselprov.go.id/vendor/style/tosuper/">https://sipbm.sulselprov.go.id/vendor/style/tosuper/</a>
 <a href="https://e-kkn.unila.ac.id/bonus/tsuper/">https://e-kkn.unila.ac.id/bonus/tsuper/</a>
+<a href="https://smanegeri7semarang.sch.id/ts/">https://smanegeri7semarang.sch.id/ts/</a>
 <a href="http://uptbahasa.pnl.ac.id/pbet/">http://uptbahasa.pnl.ac.id/pbet/</a>
 <a href="http://p4m.pnl.ac.id/pisangbet/">http://p4m.pnl.ac.id/pisangbet/</a>
 <a href="https://library.stainidaeladabi.ac.id/pisanggoreng/">https://library.stainidaeladabi.ac.id/pisanggoreng/</a>
@@ -32,7 +33,6 @@
 <a href="https://megahmandiri.co.id/top/">https://megahmandiri.co.id/top/</a>
 <a href="https://kwarcabtegal.or.id/">https://kwarcabtegal.or.id/</a>
 <a href="https://dedikasi-lldikti3.kemdikbud.go.id/styles/">https://dedikasi-lldikti3.kemdikbud.go.id/styles/</a>
-<a href="https://smanegeri7semarang.sch.id/ts/">https://smanegeri7semarang.sch.id/ts/</a>
 <a href="https://jgdd.kemdikbud.go.id/page/">https://jgdd.kemdikbud.go.id/page/</a>
 <a href="https://banyumas.kemenag.go.id/tittle/">https://banyumas.kemenag.go.id/tittle/</a>
 <a href="https://elearning.stpn.ac.id/dataformat/image/">https://elearning.stpn.ac.id/dataformat/image/</a>
@@ -192,7 +192,6 @@
 <a href="https://sragen.pramukajateng.or.id/stha/">https://sragen.pramukajateng.or.id/stha/</a>  
 <a href="https://sukoharjo.pramukajateng.or.id/sthailanddd/">https://sukoharjo.pramukajateng.or.id/sthailanddd/</a>  
 <a href="https://vico.ambilperan.id/sthai/">https://vico.ambilperan.id/sthai/</a>  
-<a href="https://smanegeri7semarang.sch.id/31/">https://smanegeri7semarang.sch.id/31/</a>  
 <a href="https://www.vicepresidente.gov.ao/tgline/">https://www.vicepresidente.gov.ao/tgline/</a>
 <a href="https://www.vicepresidente.gov.ao/bola/">https://www.vicepresidente.gov.ao/bola/</a>
 <a href="https://www.vicepresidente.gov.ao/sthailandd/">https://www.vicepresidente.gov.ao/sthailandd/</a>
