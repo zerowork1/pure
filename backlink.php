@@ -1,5 +1,5 @@
 <div style="display:none">
-<a href="https://totosuper85.com/">https://totosuper85.com/</a>
+<a href="https://totosuper57.com/">https://totosuper57.com/</a>
 <a href="https://ejournal.uinib.ac.id/rank/ttsuper/">https://ejournal.uinib.ac.id/rank/ttsuper/</a>
 <a href="https://sipbm.sulselprov.go.id/vendor/style/tosuper/">https://sipbm.sulselprov.go.id/vendor/style/tosuper/</a>
 <a href="https://e-kkn.unila.ac.id/bonus/tsuper/">https://e-kkn.unila.ac.id/bonus/tsuper/</a>
