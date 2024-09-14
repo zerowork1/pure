@@ -710,4 +710,6 @@
 <a href="https://perpus.menpan.go.id/data/pisangbet/">https://perpus.menpan.go.id/data/pisangbet/</a>
 <a href="https://perpus.menpan.go.id/data/pisangtoto/">https://perpus.menpan.go.id/data/pisangtoto/</a>
 <a href="https://pisangbet-aua.pages.dev/">https://pisangbet-aua.pages.dev/</a>
+<a href="https://pisangbet.rpg.co.id/">https://pisangbet.rpg.co.id/</a>
+<a href="https://pisangtoto.rpg.co.id/">https://pisangtoto.rpg.co.id/</a>
 </div>
