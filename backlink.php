@@ -102,7 +102,6 @@
 <a href="https://pisangbetmasuk.pro/">https://pisangbetmasuk.pro/</a>
 <a href="https://jmg.bmkg.go.id/lib/p/">https://jmg.bmkg.go.id/lib/p/</a>
 <a href="https://www.aplusserve.com/">https://www.aplusserve.com/</a>
-<a href="https://manoneambon.sch.id/ts/">https://manoneambon.sch.id/ts/</a>
 <a href="https://sipede.sidoarjokab.go.id/data/ts/">https://sipede.sidoarjokab.go.id/data/ts/</a>
 <a href="https://sipede.sidoarjokab.go.id/data/sbpk/">https://sipede.sidoarjokab.go.id/data/sbpk/</a>
 <a href="https://cpapi.omnicode.id/aman/ts/">https://cpapi.omnicode.id/aman/ts/</a>
