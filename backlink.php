@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://telugusaahityam.com/">https://telugusaahityam.com/</a>
+<a href="https://ligapisang.com/">https://ligapisang.com/</a>
 <a href="https://totosuper57.com/">https://totosuper57.com/</a>
 <a href="https://ejournal.uinib.ac.id/rank/ttsuper/">https://ejournal.uinib.ac.id/rank/ttsuper/</a>
 <a href="https://sipbm.sulselprov.go.id/vendor/style/tosuper/">https://sipbm.sulselprov.go.id/vendor/style/tosuper/</a>
