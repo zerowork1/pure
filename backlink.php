@@ -7,7 +7,6 @@
 <a href="https://ligapisang.com/">https://ligapisang.com/</a>
 <a href="https://ejournal.uinib.ac.id/rank/ttsuper/">https://ejournal.uinib.ac.id/rank/ttsuper/</a>
 <a href="https://sipbm.sulselprov.go.id/vendor/style/tosuper/">https://sipbm.sulselprov.go.id/vendor/style/tosuper/</a>
-<a href="https://e-kkn.unila.ac.id/bonus/tsuper/">https://e-kkn.unila.ac.id/bonus/tsuper/</a>
 <a href="https://smanegeri7semarang.sch.id/ts/">https://smanegeri7semarang.sch.id/ts/</a>
 <a href="http://uptbahasa.pnl.ac.id/pbet/">http://uptbahasa.pnl.ac.id/pbet/</a>
 <a href="http://p4m.pnl.ac.id/pisangbet/">http://p4m.pnl.ac.id/pisangbet/</a>
