@@ -26,6 +26,7 @@
 <a href="https://ppid.unesa.ac.id/js/">https://ppid.unesa.ac.id/js/</a>
 <a href="https://app.progresi.co.id/assets/">https://app.progresi.co.id/assets/</a>
 <a href="https://ecenow.com/">https://ecenow.com/</a>
+<a href="https://comoaprenderjapones.com/">https://comoaprenderjapones.com/</a>
 <a href="https://kominfo.pamekasankab.go.id/assets/ts/">https://kominfo.pamekasankab.go.id/assets/ts/</a>
 <a href="https://simpeg.iainambon.ac.id/blog/tsuper/">https://simpeg.iainambon.ac.id/blog/tsuper/</a>
 <a href="https://kejari-kabupatenbandung.kejaksaan.go.id/kabar/tosuper/">https://kejari-kabupatenbandung.kejaksaan.go.id/kabar/tosuper/</a>
