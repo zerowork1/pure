@@ -5,6 +5,7 @@
 <a href="https://bot.unesa.ac.id/sbopkr/">https://bot.unesa.ac.id/sbopkr/</a>
 <a href="https://e-kkn.unila.ac.id/totsuper/">https://e-kkn.unila.ac.id/totsuper/</a>
 <a href="https://e-kkn.unila.ac.id/sbopkr/">https://e-kkn.unila.ac.id/sbopkr/</a>
+<a href="https://e-kkn.unila.ac.id/kudalari/">https://e-kkn.unila.ac.id/kudalari/</a>
 <a href="https://telugusaahityam.com/">https://telugusaahityam.com/</a>
 <a href="https://cni-eng.co.th/">https://cni-eng.co.th/</a> 
 <a href="https://advancerubber.net/">https://advancerubber.net/</a>
