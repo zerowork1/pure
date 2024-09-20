@@ -24,7 +24,6 @@
 <a href="https://observium.isi.ac.id/pi/">https://observium.isi.ac.id/pi/</a>
 <a href="https://ddpi.kaltimprov.go.id/p/">https://ddpi.kaltimprov.go.id/p/</a>
 <a href="https://cv.unesa.ac.id/pisang/index.php">https://cv.unesa.ac.id/pisang/index.php</a>
-<a href="https://totokl68.com/">https://totokl68.com/</a>
 <a href="https://ppid.unesa.ac.id/js/">https://ppid.unesa.ac.id/js/</a>
 <a href="https://app.progresi.co.id/assets/">https://app.progresi.co.id/assets/</a>
 <a href="https://ecenow.com/">https://ecenow.com/</a>
