@@ -723,5 +723,4 @@
 <a href="https://obcbet.rpg.co.id/">https://obcbet.rpg.co.id/</a>
 <a href="https://totosuper.rpg.co.id/">https://totosuper.rpg.co.id/</a>
 <a href="https://totokl.rpg.co.id/">https://totokl.rpg.co.id/</a>
-<a href="https://bot.unesa.ac.id/psg/">https://bot.unesa.ac.id/psg/</a>
 </div>
