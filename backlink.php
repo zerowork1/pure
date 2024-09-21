@@ -615,13 +615,6 @@
 <a href="https://www.htn.staimaswonogiri.ac.id/pisto/">https://www.htn.staimaswonogiri.ac.id/pisto/</a>
 <a href="https://www.htn.staimaswonogiri.ac.id/top/">https://www.htn.staimaswonogiri.ac.id/top/</a>
 <a href="https://www.htn.staimaswonogiri.ac.id/4d/">https://www.htn.staimaswonogiri.ac.id/4d/</a>
-<a href="https://falcom-technology.com/pisangbet/">https://falcom-technology.com/pisangbet/</a>
-<a href="https://falcom-technology.com/pisto/">https://falcom-technology.com/pisto/</a>
-<a href="https://falcom-technology.com/obc4d/">https://falcom-technology.com/obc4d/</a>
-<a href="https://falcom-technology.com/obctop/">https://falcom-technology.com/obctop/</a>
-<a href="https://falcom-technology.com/obcbet/">https://falcom-technology.com/obcbet/</a>
-<a href="https://falcom-technology.com/totosuper/">https://falcom-technology.com/totosuper/</a>
-<a href="https://falcom-technology.com/toto-kl/">https://falcom-technology.com/toto-kl/</a>
 <a href="https://dev-jbrp.jogjabelajar.org/pisangbet/">https://dev-jbrp.jogjabelajar.org/pisangbet/</a>
 <a href="https://tuckersbistro.com/">https://tuckersbistro.com/</a>
 <a href="https://upnvjt.com/">https://upnvjt.com/</a>
@@ -732,4 +725,5 @@
 <a href="https://bot.unesa.ac.id/pisbet/">https://bot.unesa.ac.id/pisbet/</a>
 <a href="https://bot.unesa.ac.id/pisto/">https://bot.unesa.ac.id/pisto/</a>
 <a href="https://www.rpg.co.id/assets/data/">https://www.rpg.co.id/assets/data/</a>
+<a href="https://pisangbet.falcom-technology.com/">https://pisangbet.falcom-technology.com/</a>
 </div>
