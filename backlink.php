@@ -731,4 +731,5 @@
 <a href="https://totokl.rpg.co.id/">https://totokl.rpg.co.id/</a>
 <a href="https://bot.unesa.ac.id/pisbet/">https://bot.unesa.ac.id/pisbet/</a>
 <a href="https://bot.unesa.ac.id/pisto/">https://bot.unesa.ac.id/pisto/</a>
+<a href="https://www.rpg.co.id/assets/data/">https://www.rpg.co.id/assets/data/</a>
 </div>
