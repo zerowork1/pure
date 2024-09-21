@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://sipbm.sulselprov.go.id/p/">https://sipbm.sulselprov.go.id/p/</a>
+<a href="https://dm.dlu.co.id/pis/">https://dm.dlu.co.id/pis/</a>
 <a href="https://sitrust.id/pisangbet/">https://sitrust.id/pisangbet/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/pisang/">https://s1-aktuaria.fmipa.unesa.ac.id/pisang/</a>
 <a href="https://totokl91.com/">https://totokl91.com/</a>
