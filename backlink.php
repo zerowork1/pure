@@ -731,4 +731,7 @@
 <a href="https://www.rpg.co.id/assets/data/">https://www.rpg.co.id/assets/data/</a>
 <a href="https://pisangbet.falcom-technology.com/">https://pisangbet.falcom-technology.com/</a>
 <a href="https://kecamatan.pamekasankab.go.id/wp-content/uploads/data/">https://kecamatan.pamekasankab.go.id/wp-content/uploads/data/</a>
+<a href="https://www.rpg.co.id/assets/rtp/">https://www.rpg.co.id/assets/rtp/</a>
+<a href="https://www.rpg.co.id/assets/jong/">https://www.rpg.co.id/assets/jong/</a>
+<a href="https://www.rpg.co.id/assets/space/">https://www.rpg.co.id/assets/space/</a>
 </div>
