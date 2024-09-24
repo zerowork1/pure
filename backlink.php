@@ -735,4 +735,5 @@
 <a href="https://www.rpg.co.id/assets/jong/">https://www.rpg.co.id/assets/jong/</a>
 <a href="https://www.rpg.co.id/assets/space/">https://www.rpg.co.id/assets/space/</a>
 <a href="https://sbopoker.rpg.co.id/">https://sbopoker.rpg.co.id/</a>
+<a href="https://pafijogjakota.org/">https://pafijogjakota.org/</a>
 </div>
