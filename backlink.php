@@ -1,5 +1,4 @@
 <div style="display:none">
-<a href="https://smanegeri7semarang.sch.id/sbpk/">https://smanegeri7semarang.sch.id/sbpk/</a>
 <a href="https://sipbm.sulselprov.go.id/p/">https://sipbm.sulselprov.go.id/p/</a>
 <a href="https://windowsmoviemakers.net/">https://windowsmoviemakers.net/</a>  
 <a href="https://dm.dlu.co.id/pis/">https://dm.dlu.co.id/pis/</a>
