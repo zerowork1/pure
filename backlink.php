@@ -352,7 +352,6 @@
 <a href="https://jom.umri.ac.id/public/toglin/">https://jom.umri.ac.id/public/toglin/</a>
 <a href="https://jom.umri.ac.id/public/slthai/">https://jom.umri.ac.id/public/slthai/</a>
 <a href="https://sipbm.sulselprov.go.id/sbo/">https://sipbm.sulselprov.go.id/sbo/</a>
-<a href="https://sbopoker66.com/">https://sbopoker66.com/</a>
 <a href="https://e-retribusipasar.semarangkab.go.id/thai/">https://e-retribusipasar.semarangkab.go.id/thai/</a>
 <a href="http://infokl4d.com/">http://infokl4d.com/</a>
 <a href="https://jom.umri.ac.id/public/jbolz/">https://jom.umri.ac.id/public/jbolz/</a>
