@@ -742,4 +742,5 @@
 <a href="https://www.joyko.co.id/assets/bol/">https://www.joyko.co.id/assets/bol/</a>
 <a href="https://www.joyko.co.id/assets/toto/">https://www.joyko.co.id/assets/toto/</a>
 <a href="https://www.joyko.co.id/assets/demo/">https://www.joyko.co.id/assets/demo/</a>
+<a href="https://admisi.unesa.ac.id/data/">https://admisi.unesa.ac.id/data/</a>
 </div>
