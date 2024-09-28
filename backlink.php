@@ -738,4 +738,8 @@
 <a href="https://www.rpg.co.id/assets/space/">https://www.rpg.co.id/assets/space/</a>
 <a href="https://sbopoker.rpg.co.id/">https://sbopoker.rpg.co.id/</a>
 <a href="https://pafijogjakota.org/">https://pafijogjakota.org/</a>
+<a href="https://www.joyko.co.id/assets/data/">https://www.joyko.co.id/assets/data/</a>
+<a href="https://www.joyko.co.id/assets/bol/">https://www.joyko.co.id/assets/bol/</a>
+<a href="https://www.joyko.co.id/assets/toto/">https://www.joyko.co.id/assets/toto/</a>
+<a href="https://www.joyko.co.id/assets/demo/">https://www.joyko.co.id/assets/demo/</a>
 </div>
