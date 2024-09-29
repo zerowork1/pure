@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://smanegeri7semarang.sch.id/sbpk/">https://smanegeri7semarang.sch.id/sbpk/</a>
 <a href="https://sbopoker39.com/">https://sbopoker39.com/</a>
 <a href="https://ddpi.kaltimprov.go.id/sbpkr/">https://ddpi.kaltimprov.go.id/sbpkr/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/sbopoker/">https://s1-aktuaria.fmipa.unesa.ac.id/sbopoker/</a>
