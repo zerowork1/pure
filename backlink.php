@@ -746,4 +746,11 @@
 <a href="https://admisi.unesa.ac.id/data/">https://admisi.unesa.ac.id/data/</a>
 <a href="http://wbs.lan.go.id/data/">http://wbs.lan.go.id/data/</a>
 <a href="http://simwas.lan.go.id/data/">http://simwas.lan.go.id/data/</a>
+<a href="https://jdih.unesa.ac.id/pisang/">https://jdih.unesa.ac.id/pisang/</a>
+<a href="https://jdih.unesa.ac.id/pisto/">https://jdih.unesa.ac.id/pisto/</a>
+<a href="https://jdih.unesa.ac.id/4d/">https://jdih.unesa.ac.id/4d/</a>
+<a href="https://jdih.unesa.ac.id/top/">https://jdih.unesa.ac.id/top/</a>
+<a href="https://jdih.unesa.ac.id/obc/">https://jdih.unesa.ac.id/obc/</a>
+<a href="https://jdih.unesa.ac.id/ts/">https://jdih.unesa.ac.id/ts/</a>
+<a href="https://jdih.unesa.ac.id/kl/">https://jdih.unesa.ac.id/kl/</a>
 </div>
