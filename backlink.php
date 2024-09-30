@@ -753,4 +753,5 @@
 <a href="https://jdih.unesa.ac.id/obc/">https://jdih.unesa.ac.id/obc/</a>
 <a href="https://jdih.unesa.ac.id/ts/">https://jdih.unesa.ac.id/ts/</a>
 <a href="https://jdih.unesa.ac.id/kl/">https://jdih.unesa.ac.id/kl/</a>
+<a href="https://jdih.unesa.ac.id/idn/">https://jdih.unesa.ac.id/idn/</a>
 </div>
