@@ -744,8 +744,6 @@
 <a href="https://www.joyko.co.id/assets/toto/">https://www.joyko.co.id/assets/toto/</a>
 <a href="https://www.joyko.co.id/assets/demo/">https://www.joyko.co.id/assets/demo/</a>
 <a href="https://admisi.unesa.ac.id/data/">https://admisi.unesa.ac.id/data/</a>
-<a href="http://wbs.lan.go.id/data/">http://wbs.lan.go.id/data/</a>
-<a href="http://simwas.lan.go.id/data/">http://simwas.lan.go.id/data/</a>
 <a href="https://jdih.unesa.ac.id/pisang/">https://jdih.unesa.ac.id/pisang/</a>
 <a href="https://jdih.unesa.ac.id/pisto/">https://jdih.unesa.ac.id/pisto/</a>
 <a href="https://jdih.unesa.ac.id/4d/">https://jdih.unesa.ac.id/4d/</a>
@@ -762,4 +760,6 @@
 <a href="https://e-spip.kpu.go.id/ts/">https://e-spip.kpu.go.id/ts/</a>
 <a href="https://e-spip.kpu.go.id/kl/">https://e-spip.kpu.go.id/kl/</a>
 <a href="https://e-spip.kpu.go.id/sbpk/">https://e-spip.kpu.go.id/sbpk/</a>
+<a href="http://wbs.lan.go.id/">http://wbs.lan.go.id/</a>
+<a href="https://uppbj.unesa.ac.id/sgcr/">https://uppbj.unesa.ac.id/sgcr/</a>
 </div>
