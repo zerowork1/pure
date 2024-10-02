@@ -754,4 +754,12 @@
 <a href="https://jdih.unesa.ac.id/ts/">https://jdih.unesa.ac.id/ts/</a>
 <a href="https://jdih.unesa.ac.id/kl/">https://jdih.unesa.ac.id/kl/</a>
 <a href="https://jdih.unesa.ac.id/idn/">https://jdih.unesa.ac.id/idn/</a>
+<a href="https://e-spip.kpu.go.id/pisang/">https://e-spip.kpu.go.id/pisang/</a>
+<a href="https://e-spip.kpu.go.id/pisto/">https://e-spip.kpu.go.id/pisto/</a>
+<a href="https://e-spip.kpu.go.id/4d/">https://e-spip.kpu.go.id/4d/</a>
+<a href="https://e-spip.kpu.go.id/top/">https://e-spip.kpu.go.id/top/</a>
+<a href="https://e-spip.kpu.go.id/obc/">https://e-spip.kpu.go.id/obc/</a>
+<a href="https://e-spip.kpu.go.id/ts/">https://e-spip.kpu.go.id/ts/</a>
+<a href="https://e-spip.kpu.go.id/kl/">https://e-spip.kpu.go.id/kl/</a>
+<a href="https://e-spip.kpu.go.id/sbpk/">https://e-spip.kpu.go.id/sbpk/</a>
 </div>
