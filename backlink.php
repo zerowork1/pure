@@ -1,6 +1,7 @@
 <div style="display:none">
 <a href="https://totosuper92.com/">https://totosuper92.com/</a>
 <a href="https://smanegeri7semarang.sch.id/sbpk/">https://smanegeri7semarang.sch.id/sbpk/</a>
+<a href="https://smanegeri7semarang.sch.id/ts/">https://smanegeri7semarang.sch.id/ts/</a>
 <a href="https://sbopoker39.com/">https://sbopoker39.com/</a>
 <a href="https://ddpi.kaltimprov.go.id/sbpkr/">https://ddpi.kaltimprov.go.id/sbpkr/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/sbopoker/">https://s1-aktuaria.fmipa.unesa.ac.id/sbopoker/</a>
@@ -23,7 +24,6 @@
 <a href="https://ligapisang.com/">https://ligapisang.com/</a>
 <a href="https://ejournal.uinib.ac.id/rank/ttsuper/">https://ejournal.uinib.ac.id/rank/ttsuper/</a>
 <a href="https://sipbm.sulselprov.go.id/vendor/style/tosuper/">https://sipbm.sulselprov.go.id/vendor/style/tosuper/</a>
-<a href="https://smanegeri7semarang.sch.id/ts/">https://smanegeri7semarang.sch.id/ts/</a>
 <a href="http://uptbahasa.pnl.ac.id/pbet/">http://uptbahasa.pnl.ac.id/pbet/</a>
 <a href="http://p4m.pnl.ac.id/pisangbet/">http://p4m.pnl.ac.id/pisangbet/</a>
 <a href="https://library.stainidaeladabi.ac.id/pisanggoreng/">https://library.stainidaeladabi.ac.id/pisanggoreng/</a>
