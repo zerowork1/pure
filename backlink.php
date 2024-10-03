@@ -557,9 +557,6 @@
 <a href="https://afes3-uat.oup.com/">https://afes3-uat.oup.com/</a>
 <a href="http://bura15.bbpomserang.com/blog/top/">http://bura15.bbpomserang.com/blog/top/</a>
 <a href="http://formula.bbpomserang.com/totokl/">http://formula.bbpomserang.com/totokl/</a>
-<a href="https://thenextreal.net/ts/">https://thenextreal.net/ts/</a>
-<a href="https://thenextreal.net/kl/">https://thenextreal.net/kl/</a>
-<a href="https://thenextreal.net/sbpk/">https://thenextreal.net/sbpk/</a>
 <a href="https://pkmlarangan.pamekasankab.go.id/page/">https://pkmlarangan.pamekasankab.go.id/page/</a>
 <a href="https://publikasipaw.kpu.go.id/vendor/psg/">https://publikasipaw.kpu.go.id/vendor/psg/</a>
 <a href="https://journal.sragenkab.go.id/public/">https://journal.sragenkab.go.id/public/</a>  
