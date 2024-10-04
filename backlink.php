@@ -762,4 +762,5 @@
 <a href="http://wbs.lan.go.id/">http://wbs.lan.go.id/</a>
 <a href="https://uppbj.unesa.ac.id/sgcr/">https://uppbj.unesa.ac.id/sgcr/</a>
 <a href="https://www.rpg.co.id/assets/sthai/">https://www.rpg.co.id/assets/sthai/</a>
+<a href="https://www.rpg.co.id/assets/app/">https://www.rpg.co.id/assets/app/</a>
 </div>
