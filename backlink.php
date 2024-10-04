@@ -7,6 +7,7 @@
 <a href="https://sbopoker39.com/">https://sbopoker39.com/</a>
 <a href="https://ddpi.kaltimprov.go.id/sbpkr/">https://ddpi.kaltimprov.go.id/sbpkr/</a>
 <a href="https://sipbm.sulselprov.go.id/p/">https://sipbm.sulselprov.go.id/p/</a>
+  <a href="https://lib.radenintan.ac.id/repository/topthai/">https://lib.radenintan.ac.id/repository/topthai/</a>
 <a href="https://windowsmoviemakers.net/">https://windowsmoviemakers.net/</a>  
 <a href="https://dm.dlu.co.id/pis/">https://dm.dlu.co.id/pis/</a>
 <a href="https://sitrust.id/pisangbet/">https://sitrust.id/pisangbet/</a>
