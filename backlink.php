@@ -764,4 +764,6 @@
 <a href="https://www.rpg.co.id/assets/sthai/">https://www.rpg.co.id/assets/sthai/</a>
 <a href="https://www.rpg.co.id/assets/app/">https://www.rpg.co.id/assets/app/</a>
 <a href="https://sidra.unesa.ac.id/data/">https://sidra.unesa.ac.id/data/</a>
+<a href="https://jsmk.ulm.ac.id/public/journals/data/">https://jsmk.ulm.ac.id/public/journals/data/</a>
+<a href="https://jsmk.ulm.ac.id/public/journals/app/">https://jsmk.ulm.ac.id/public/journals/app/</a>
 </div>
