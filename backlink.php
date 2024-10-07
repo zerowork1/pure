@@ -1,10 +1,10 @@
 <div style="display:none">
 <a href="https://totosuper81.com/">https://totosuper81.com/</a>
+<a href="https://totokl22.com/">https://totokl22.com/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/totsuper/">https://s1-aktuaria.fmipa.unesa.ac.id/totsuper/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/sbo/">https://s1-aktuaria.fmipa.unesa.ac.id/sbo/</a>
 <a href="https://smanegeri7semarang.sch.id/sbpk/">https://smanegeri7semarang.sch.id/sbpk/</a>
 <a href="https://smanegeri7semarang.sch.id/ts/">https://smanegeri7semarang.sch.id/ts/</a>
-<a href="https://sbopoker39.com/">https://sbopoker39.com/</a>
 <a href="https://ddpi.kaltimprov.go.id/sbpkr/">https://ddpi.kaltimprov.go.id/sbpkr/</a>
 <a href="https://sipbm.sulselprov.go.id/p/">https://sipbm.sulselprov.go.id/p/</a>
 <a href="https://lib.radenintan.ac.id/repository/topthai/">https://lib.radenintan.ac.id/repository/topthai/</a>
@@ -12,7 +12,6 @@
 <a href="https://dm.dlu.co.id/pis/">https://dm.dlu.co.id/pis/</a>
 <a href="https://sitrust.id/pisangbet/">https://sitrust.id/pisangbet/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/pisang/">https://s1-aktuaria.fmipa.unesa.ac.id/pisang/</a>
-<a href="https://totokl91.com/">https://totokl91.com/</a>
 <a href="https://simpeg.uniku.ac.id/sbpkthai/">https://simpeg.uniku.ac.id/sbpkthai/</a>
 <a href="https://bot.unesa.ac.id/tosuper/">https://bot.unesa.ac.id/tosuper/</a>
 <a href="https://bot.unesa.ac.id/kl/">https://bot.unesa.ac.id/kl/</a>
