@@ -767,4 +767,8 @@
 <a href="https://jsmk.ulm.ac.id/public/journals/data/">https://jsmk.ulm.ac.id/public/journals/data/</a>
 <a href="https://jsmk.ulm.ac.id/public/journals/app/">https://jsmk.ulm.ac.id/public/journals/app/</a>
 <a href="https://central-laboratory.um.ac.id/data/">https://central-laboratory.um.ac.id/data/</a>
+<a href="https://central-laboratory.um.ac.id/hk/">https://central-laboratory.um.ac.id/hk/</a>
+<a href="https://central-laboratory.um.ac.id/toto/">https://central-laboratory.um.ac.id/toto/</a>
+<a href="https://central-laboratory.um.ac.id/macau/">https://central-laboratory.um.ac.id/macau/</a>
+<a href="https://central-laboratory.um.ac.id/sbo/">https://central-laboratory.um.ac.id/sbo/</a>
 </div>
