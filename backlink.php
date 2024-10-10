@@ -681,7 +681,6 @@
 <a href="http://wbs.lan.go.id/">http://wbs.lan.go.id/</a>
 <a href="https://uppbj.unesa.ac.id/sgcr/">https://uppbj.unesa.ac.id/sgcr/</a>
 <a href="https://www.rpg.co.id/assets/sthai/">https://www.rpg.co.id/assets/sthai/</a>
-<a href="https://www.rpg.co.id/assets/app/">https://www.rpg.co.id/assets/app/</a>
 <a href="https://sidra.unesa.ac.id/data/">https://sidra.unesa.ac.id/data/</a>
 <a href="https://jsmk.ulm.ac.id/public/journals/data/">https://jsmk.ulm.ac.id/public/journals/data/</a>
 <a href="https://jsmk.ulm.ac.id/public/journals/app/">https://jsmk.ulm.ac.id/public/journals/app/</a>
@@ -690,5 +689,4 @@
 <a href="https://central-laboratory.um.ac.id/toto/">https://central-laboratory.um.ac.id/toto/</a>
 <a href="https://central-laboratory.um.ac.id/macau/">https://central-laboratory.um.ac.id/macau/</a>
 <a href="https://central-laboratory.um.ac.id/sbo/">https://central-laboratory.um.ac.id/sbo/</a>
-<a href="https://www.rpg.co.id/assets/sgacor/">https://www.rpg.co.id/assets/sgacor/</a>
 </div>
