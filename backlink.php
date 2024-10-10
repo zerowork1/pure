@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://pap.kaltimprov.go.id/img/">https://pap.kaltimprov.go.id/img/</a>
 <a href="https://ddpi.kaltimprov.go.id/totsuper/">https://ddpi.kaltimprov.go.id/totsuper/</a>
 <a href="https://ddpi.kaltimprov.go.id/bananas/">https://ddpi.kaltimprov.go.id/bananas/</a>
 <a href="https://perpus.menpan.go.id/menyala/">https://perpus.menpan.go.id/menyala/</a>
