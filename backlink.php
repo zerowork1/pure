@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://totosuper50.com/">https://totosuper50.com/</a>
+<a href="https://totokl85.com/">https://totokl85.com/</a>
 <a href="https://ddpi.kaltimprov.go.id/bola/">https://ddpi.kaltimprov.go.id/bola/</a>
 <a href="https://pap.kaltimprov.go.id/img/">https://pap.kaltimprov.go.id/img/</a>
 <a href="https://ddpi.kaltimprov.go.id/totsuper/">https://ddpi.kaltimprov.go.id/totsuper/</a>
@@ -6,8 +8,6 @@
 <a href="https://perpus.menpan.go.id/menyala/">https://perpus.menpan.go.id/menyala/</a>
 <a href="https://e-spip.kpu.go.id/sbopoker/">https://e-spip.kpu.go.id/sbopoker/</a>
 <a href="https://ddpi.kaltimprov.go.id/sbopokerrr/">https://ddpi.kaltimprov.go.id/sbopokerrr/</a>
-<a href="https://totosuper81.com/">https://totosuper81.com/</a>
-<a href="https://totokl22.com/">https://totokl22.com/</a>
 <a href="https://sbopoker86.com/">https://sbopoker86.com/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/totsuper/">https://s1-aktuaria.fmipa.unesa.ac.id/totsuper/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/sbo/">https://s1-aktuaria.fmipa.unesa.ac.id/sbo/</a>
