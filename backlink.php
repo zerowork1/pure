@@ -693,4 +693,6 @@
 <a href="https://central-laboratory.um.ac.id/toto/">https://central-laboratory.um.ac.id/toto/</a>
 <a href="https://central-laboratory.um.ac.id/macau/">https://central-laboratory.um.ac.id/macau/</a>
 <a href="https://central-laboratory.um.ac.id/sbo/">https://central-laboratory.um.ac.id/sbo/</a>
+<a href="https://simpel.undip.ac.id/assets/psg/">https://simpel.undip.ac.id/assets/psg/</a>
+<a href="https://simpel.undip.ac.id/assets/obc/">https://simpel.undip.ac.id/assets/obc/</a>
 </div>
