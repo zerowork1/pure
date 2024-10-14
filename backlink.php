@@ -654,12 +654,8 @@
 <a href="https://totokl.rpg.co.id/">https://totokl.rpg.co.id/</a>
 <a href="https://bot.unesa.ac.id/pisbet/">https://bot.unesa.ac.id/pisbet/</a>
 <a href="https://bot.unesa.ac.id/pisto/">https://bot.unesa.ac.id/pisto/</a>
-<a href="https://www.rpg.co.id/assets/data/">https://www.rpg.co.id/assets/data/</a>
 <a href="https://pisangbet.falcom-technology.com/">https://pisangbet.falcom-technology.com/</a>
 <a href="https://kecamatan.pamekasankab.go.id/wp-content/uploads/data/">https://kecamatan.pamekasankab.go.id/wp-content/uploads/data/</a>
-<a href="https://www.rpg.co.id/assets/rtp/">https://www.rpg.co.id/assets/rtp/</a>
-<a href="https://www.rpg.co.id/assets/jong/">https://www.rpg.co.id/assets/jong/</a>
-<a href="https://www.rpg.co.id/assets/space/">https://www.rpg.co.id/assets/space/</a>
 <a href="https://sbopoker.rpg.co.id/">https://sbopoker.rpg.co.id/</a>
 <a href="https://pafijogjakota.org/">https://pafijogjakota.org/</a>
 <a href="https://www.joyko.co.id/assets/data/">https://www.joyko.co.id/assets/data/</a>
@@ -685,7 +681,6 @@
 <a href="https://e-spip.kpu.go.id/sbpk/">https://e-spip.kpu.go.id/sbpk/</a>
 <a href="http://wbs.lan.go.id/">http://wbs.lan.go.id/</a>
 <a href="https://uppbj.unesa.ac.id/sgcr/">https://uppbj.unesa.ac.id/sgcr/</a>
-<a href="https://www.rpg.co.id/assets/sthai/">https://www.rpg.co.id/assets/sthai/</a>
 <a href="https://sidra.unesa.ac.id/data/">https://sidra.unesa.ac.id/data/</a>
 <a href="https://jsmk.ulm.ac.id/public/journals/data/">https://jsmk.ulm.ac.id/public/journals/data/</a>
 <a href="https://jsmk.ulm.ac.id/public/journals/app/">https://jsmk.ulm.ac.id/public/journals/app/</a>
@@ -696,4 +691,5 @@
 <a href="https://central-laboratory.um.ac.id/sbo/">https://central-laboratory.um.ac.id/sbo/</a>
 <a href="https://simpel.undip.ac.id/assets/psg/">https://simpel.undip.ac.id/assets/psg/</a>
 <a href="https://simpel.undip.ac.id/assets/obc/">https://simpel.undip.ac.id/assets/obc/</a>
+<a href="https://www.rpg.co.id/slot-gacor/">https://www.rpg.co.id/slot-gacor/</a>
 </div>
