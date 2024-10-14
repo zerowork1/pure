@@ -1,6 +1,7 @@
 <div style="display:none">
 <a href="https://totosuper50.com/">https://totosuper50.com/</a>
 <a href="https://totokl85.com/">https://totokl85.com/</a>
+<a href="https://pkmteja.pamekasankab.go.id/">https://pkmteja.pamekasankab.go.id/</a>
 <a href="https://ddpi.kaltimprov.go.id/demo/">https://ddpi.kaltimprov.go.id/demo/</a>
 <a href="https://ddpi.kaltimprov.go.id/bola/">https://ddpi.kaltimprov.go.id/bola/</a>
 <a href="https://pap.kaltimprov.go.id/img/">https://pap.kaltimprov.go.id/img/</a>
