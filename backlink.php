@@ -1,6 +1,8 @@
 <div style="display:none">
 <a href="https://totosuper50.com/">https://totosuper50.com/</a>
 <a href="https://totokl85.com/">https://totokl85.com/</a>
+<a href="https://sbopoker86.com/">https://sbopoker86.com/</a>
+<a href="https://thenextreal.net/fortune/">https://thenextreal.net/fortune/</a>
 <a href="https://pkmteja.pamekasankab.go.id/">https://pkmteja.pamekasankab.go.id/</a>
 <a href="https://ddpi.kaltimprov.go.id/demo/">https://ddpi.kaltimprov.go.id/demo/</a>
 <a href="https://ddpi.kaltimprov.go.id/bola/">https://ddpi.kaltimprov.go.id/bola/</a>
@@ -10,7 +12,6 @@
 <a href="https://perpus.menpan.go.id/menyala/">https://perpus.menpan.go.id/menyala/</a>
 <a href="https://e-spip.kpu.go.id/sbopoker/">https://e-spip.kpu.go.id/sbopoker/</a>
 <a href="https://ddpi.kaltimprov.go.id/sbopokerrr/">https://ddpi.kaltimprov.go.id/sbopokerrr/</a>
-<a href="https://sbopoker86.com/">https://sbopoker86.com/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/totsuper/">https://s1-aktuaria.fmipa.unesa.ac.id/totsuper/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/sbo/">https://s1-aktuaria.fmipa.unesa.ac.id/sbo/</a>
 <a href="https://smanegeri7semarang.sch.id/sbpk/">https://smanegeri7semarang.sch.id/sbpk/</a>
