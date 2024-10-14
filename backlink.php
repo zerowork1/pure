@@ -699,4 +699,5 @@
 <a href="https://joborder.ish.co.id/top/">https://joborder.ish.co.id/top/</a>
 <a href="https://joborder.ish.co.id/4d/">https://joborder.ish.co.id/4d/</a>
 <a href="https://joborder.ish.co.id/data/">https://joborder.ish.co.id/data/</a>
+<a href="https://mou.pontianak.go.id/assets/scor/">https://mou.pontianak.go.id/assets/scor/</a>
 </div>
