@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://ddpi.kaltimprov.go.id/sb0p0k3r/">https://ddpi.kaltimprov.go.id/sb0p0k3r/</a>
+<a href="https://ddpi.kaltimprov.go.id/t0t0super/">https://ddpi.kaltimprov.go.id/t0t0super/</a>
 <a href="https://ddpi.kaltimprov.go.id/t0t0kl/">https://ddpi.kaltimprov.go.id/t0t0kl/</a>
 <a href="https://www.bordomodern.com/sbopoker/">https://www.bordomodern.com/sbopoker/</a>
 <a href="https://www.bordomodern.com/totosuper/">https://www.bordomodern.com/totosuper/</a>
