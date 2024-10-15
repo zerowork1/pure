@@ -2,6 +2,7 @@
 <a href="https://totosuper50.com/">https://totosuper50.com/</a>
 <a href="https://totokl85.com/">https://totokl85.com/</a>
 <a href="https://sbopoker86.com/">https://sbopoker86.com/</a>
+<a href="https://helpdesk.kpu.go.id/tanggapan/">https://helpdesk.kpu.go.id/tanggapan/</a>
 <a href="https://thenextreal.net/fortune/">https://thenextreal.net/fortune/</a>
 <a href="https://pkmteja.pamekasankab.go.id/">https://pkmteja.pamekasankab.go.id/</a>
 <a href="https://ddpi.kaltimprov.go.id/demo/">https://ddpi.kaltimprov.go.id/demo/</a>
