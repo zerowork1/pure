@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://www.bordomodern.com/totokl/">https://www.bordomodern.com/totokl/</a>
 <a href="https://totosuper50.com/">https://totosuper50.com/</a>
 <a href="https://totokl85.com/">https://totokl85.com/</a>
 <a href="https://sbopoker86.com/">https://sbopoker86.com/</a>
