@@ -2,6 +2,9 @@
 <a href="https://obcbet.ibnusina.co.id/">https://obcbet.ibnusina.co.id/</a> 
 <a href="https://spm.bangda.kemendagri.go.id/layanan/">https://spm.bangda.kemendagri.go.id/layanan/</a>  
 <a href="https://sitab.kpu.go.id/perencanaan/">https://sitab.kpu.go.id/perencanaan/</a>
+<a href="https://ukom-jf.kpu.go.id/assets/">https://ukom-jf.kpu.go.id/assets/</a> 
+<a href="https://ukom-jf.kpu.go.id/pages/">https://ukom-jf.kpu.go.id/pages/</a>
+<a href="https://ukom-jf.kpu.go.id/data-macau/">https://ukom-jf.kpu.go.id/data-macau/</a>
 <a href="https://totosuper67.com/">https://totosuper67.com/</a>
 <a href="https://sbopoker77.com/">https://sbopoker77.com/</a>
 <a href="https://ddpi.kaltimprov.go.id/sb0p0k3r/">https://ddpi.kaltimprov.go.id/sb0p0k3r/</a>
