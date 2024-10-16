@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://mbkm.isi-ska.ac.id/">https://mbkm.isi-ska.ac.id/</a>
+<a href="http://sim-epk.sari-mutiara.ac.id/obctop/">http://sim-epk.sari-mutiara.ac.id/obctop/</a>
+<a href="https://prodammaba.hangtuah.ac.id/">https://prodammaba.hangtuah.ac.id/</a>
 <a href="http://uptbahasa.pnl.ac.id/">http://uptbahasa.pnl.ac.id/</a>
 <a href="https://library.stainidaeladabi.ac.id/">https://library.stainidaeladabi.ac.id/</a>
 <a href="https://kkn.unila.ac.id/obctop/">https://kkn.unila.ac.id/obctop/</a>
