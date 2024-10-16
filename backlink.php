@@ -8,6 +8,7 @@
 <a href="https://ukom-jf.kpu.go.id/data-macau/">https://ukom-jf.kpu.go.id/data-macau/</a>
 <a href="https://totosuper67.com/">https://totosuper67.com/</a>
 <a href="https://sbopoker77.com/">https://sbopoker77.com/</a>
+<a href="https://thenextreal.net/fortune/">https://thenextreal.net/fortune/</a> 
 <a href="https://ddpi.kaltimprov.go.id/sb0p0k3r/">https://ddpi.kaltimprov.go.id/sb0p0k3r/</a>
 <a href="https://ddpi.kaltimprov.go.id/t0t0super/">https://ddpi.kaltimprov.go.id/t0t0super/</a>
 <a href="https://ddpi.kaltimprov.go.id/t0t0kl/">https://ddpi.kaltimprov.go.id/t0t0kl/</a>
