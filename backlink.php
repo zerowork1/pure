@@ -1,11 +1,11 @@
 <div style="display:none">
+<a href="https://totosuper67.com/">https://totosuper67.com/</a>
 <a href="https://ddpi.kaltimprov.go.id/sb0p0k3r/">https://ddpi.kaltimprov.go.id/sb0p0k3r/</a>
 <a href="https://ddpi.kaltimprov.go.id/t0t0super/">https://ddpi.kaltimprov.go.id/t0t0super/</a>
 <a href="https://ddpi.kaltimprov.go.id/t0t0kl/">https://ddpi.kaltimprov.go.id/t0t0kl/</a>
 <a href="https://www.bordomodern.com/sbopoker/">https://www.bordomodern.com/sbopoker/</a>
 <a href="https://www.bordomodern.com/totosuper/">https://www.bordomodern.com/totosuper/</a>
 <a href="https://www.bordomodern.com/totokl/">https://www.bordomodern.com/totokl/</a>
-<a href="https://totosuper50.com/">https://totosuper50.com/</a>
 <a href="https://totokl85.com/">https://totokl85.com/</a>
 <a href="https://sbopoker86.com/">https://sbopoker86.com/</a>
 <a href="https://helpdesk.kpu.go.id/tanggapan/">https://helpdesk.kpu.go.id/tanggapan/</a>
