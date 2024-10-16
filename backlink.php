@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://thenextreal.net/the-glamor/">https://thenextreal.net/the-glamor/</a>
+<a href="https://www.bonabant.com/obctop/">https://www.bonabant.com/obctop/</a>
+<a href="https://ddpi.kaltimprov.go.id/otop/">https://ddpi.kaltimprov.go.id/otop/</a>
 <a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a> 
 <a href="https://obcbet.ibnusina.co.id/">https://obcbet.ibnusina.co.id/</a> 
 <a href="https://spm.bangda.kemendagri.go.id/layanan/">https://spm.bangda.kemendagri.go.id/layanan/</a>  
