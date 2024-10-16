@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a> 
 <a href="https://obcbet.ibnusina.co.id/">https://obcbet.ibnusina.co.id/</a> 
 <a href="https://spm.bangda.kemendagri.go.id/layanan/">https://spm.bangda.kemendagri.go.id/layanan/</a>  
 <a href="https://sitab.kpu.go.id/perencanaan/">https://sitab.kpu.go.id/perencanaan/</a>
