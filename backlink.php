@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://komnasham.go.id/otp/">https://komnasham.go.id/otp/</a>
+<a href="https://lapor.jogjaprov.go.id/top/">https://lapor.jogjaprov.go.id/top/</a>
 <a href="https://schoolmedia.co.id/">https://schoolmedia.co.id/</a>
 <a href="http://demak.pramukajateng.or.id/">http://demak.pramukajateng.or.id/</a>
 <a href="https://mbkm.isi-ska.ac.id/">https://mbkm.isi-ska.ac.id/</a>
