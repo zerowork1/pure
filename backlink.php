@@ -10,6 +10,7 @@
 <a href="https://library.stainidaeladabi.ac.id/">https://library.stainidaeladabi.ac.id/</a>
 <a href="https://kkn.unila.ac.id/obctop/">https://kkn.unila.ac.id/obctop/</a>
 <a href="https://e-office.pssi.org/o/">https://e-office.pssi.org/o/</a>
+  <a href="https://sdg.komnasham.go.id/">https://sdg.komnasham.go.id/</a>
 <a href="https://thenextreal.net/the-glamor/">https://thenextreal.net/the-glamor/</a>
 <a href="https://www.bonabant.com/obctop/">https://www.bonabant.com/obctop/</a>
 <a href="https://ddpi.kaltimprov.go.id/otop/">https://ddpi.kaltimprov.go.id/otop/</a>
