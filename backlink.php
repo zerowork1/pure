@@ -734,4 +734,5 @@
 <a href="https://joborder.ish.co.id/data/">https://joborder.ish.co.id/data/</a>
 <a href="https://mou.pontianak.go.id/assets/scor/">https://mou.pontianak.go.id/assets/scor/</a>
 <a href="https://ddpi.kaltimprov.go.id/pisto/">https://ddpi.kaltimprov.go.id/pisto/</a>
+<a href="https://neosidata.unesa.ac.id/assets/data/">https://neosidata.unesa.ac.id/assets/data/</a>
 </div>
