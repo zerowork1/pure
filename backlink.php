@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://manoneambon.sch.id/artikel/">https://manoneambon.sch.id/artikel/</a>
 <a href="https://kkn.unila.ac.id/bpk/">https://kkn.unila.ac.id/bpk/</a>
 <a href="https://kkn.unila.ac.id/superto/">https://kkn.unila.ac.id/superto/</a>
 <a href="https://komnasham.go.id/otp/">https://komnasham.go.id/otp/</a>
