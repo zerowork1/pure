@@ -736,4 +736,5 @@
 <a href="https://ddpi.kaltimprov.go.id/pisto/">https://ddpi.kaltimprov.go.id/pisto/</a>
 <a href="https://neosidata.unesa.ac.id/assets/data/">https://neosidata.unesa.ac.id/assets/data/</a>
 <a href="https://ddpi.kaltimprov.go.id/pisang/">https://ddpi.kaltimprov.go.id/pisang/</a>
+<a href="https://jurnalfebi.iainkediri.ac.id/pisang/">https://jurnalfebi.iainkediri.ac.id/pisang/</a>
 </div>
