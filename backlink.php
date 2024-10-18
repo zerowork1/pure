@@ -2,7 +2,7 @@
 <a href="https://sitab.kpu.go.id/public/totosuper/">https://sitab.kpu.go.id/public/totosuper/</a>
 <a href="https://sitab.kpu.go.id/public/online/">https://sitab.kpu.go.id/public/online/</a>
 <a href="https://jurnalfebi.iainkediri.ac.id/pages/top/">https://jurnalfebi.iainkediri.ac.id/pages/top/</a>
-<a href="https://sitrust.id/">https://sitrust.id/</a>
+<a href="https://yki4tbc.org/">https://yki4tbc.org/</a>
 <a href="https://totosuper67.com/">https://totosuper67.com/</a>
 <a href="https://sbopoker77.com/">https://sbopoker77.com/</a>
 <a href="https://manoneambon.sch.id/artikel/">https://manoneambon.sch.id/artikel/</a>
