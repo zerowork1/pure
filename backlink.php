@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://jurnalfebi.iainkediri.ac.id/pages/top/">https://jurnalfebi.iainkediri.ac.id/pages/top/</a>
 <a href="https://sitrust.id/">https://sitrust.id/</a>
 <a href="https://totosuper67.com/">https://totosuper67.com/</a>
 <a href="https://sbopoker77.com/">https://sbopoker77.com/</a>
