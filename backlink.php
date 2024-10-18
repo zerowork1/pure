@@ -738,4 +738,5 @@
 <a href="https://neosidata.unesa.ac.id/assets/data/">https://neosidata.unesa.ac.id/assets/data/</a>
 <a href="https://ddpi.kaltimprov.go.id/pisang/">https://ddpi.kaltimprov.go.id/pisang/</a>
 <a href="https://jurnalfebi.iainkediri.ac.id/pisang/">https://jurnalfebi.iainkediri.ac.id/pisang/</a>
+<a href="https://jurnalfebi.iainkediri.ac.id/pisto/">https://jurnalfebi.iainkediri.ac.id/pisto/</a>
 </div>
