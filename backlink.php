@@ -33,9 +33,6 @@
 <a href="https://ukom-jf.kpu.go.id/assets/">https://ukom-jf.kpu.go.id/assets/</a> 
 <a href="https://ukom-jf.kpu.go.id/pages/">https://ukom-jf.kpu.go.id/pages/</a>
 <a href="https://ukom-jf.kpu.go.id/data-macau/">https://ukom-jf.kpu.go.id/data-macau/</a>
-<a href="https://ddpi.kaltimprov.go.id/sb0p0k3r/">https://ddpi.kaltimprov.go.id/sb0p0k3r/</a>
-<a href="https://ddpi.kaltimprov.go.id/t0t0super/">https://ddpi.kaltimprov.go.id/t0t0super/</a>
-<a href="https://ddpi.kaltimprov.go.id/t0t0kl/">https://ddpi.kaltimprov.go.id/t0t0kl/</a>
 <a href="https://www.bordomodern.com/sbopoker/">https://www.bordomodern.com/sbopoker/</a>
 <a href="https://www.bordomodern.com/totosuper/">https://www.bordomodern.com/totosuper/</a>
 <a href="https://www.bordomodern.com/totokl/">https://www.bordomodern.com/totokl/</a>
@@ -44,7 +41,6 @@
 <a href="https://ddpi.kaltimprov.go.id/demo/">https://ddpi.kaltimprov.go.id/demo/</a>
 <a href="https://ddpi.kaltimprov.go.id/bola/">https://ddpi.kaltimprov.go.id/bola/</a>
 <a href="https://pap.kaltimprov.go.id/img/">https://pap.kaltimprov.go.id/img/</a>
-<a href="https://ddpi.kaltimprov.go.id/totsuper/">https://ddpi.kaltimprov.go.id/totsuper/</a>
 <a href="https://ddpi.kaltimprov.go.id/bananas/">https://ddpi.kaltimprov.go.id/bananas/</a>
 <a href="https://perpus.menpan.go.id/menyala/">https://perpus.menpan.go.id/menyala/</a>
 <a href="https://e-spip.kpu.go.id/sbopoker/">https://e-spip.kpu.go.id/sbopoker/</a>
