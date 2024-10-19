@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://totokl85.com/">https://totokl85.com/</a>
 <a href="https://sitab.kpu.go.id/public/totosuper/">https://sitab.kpu.go.id/public/totosuper/</a>
 <a href="https://sitab.kpu.go.id/public/online/">https://sitab.kpu.go.id/public/online/</a>
 <a href="https://jurnalfebi.iainkediri.ac.id/pages/top/">https://jurnalfebi.iainkediri.ac.id/pages/top/</a>
@@ -38,9 +39,7 @@
 <a href="https://www.bordomodern.com/sbopoker/">https://www.bordomodern.com/sbopoker/</a>
 <a href="https://www.bordomodern.com/totosuper/">https://www.bordomodern.com/totosuper/</a>
 <a href="https://www.bordomodern.com/totokl/">https://www.bordomodern.com/totokl/</a>
-<a href="https://totokl85.com/">https://totokl85.com/</a>
 <a href="https://helpdesk.kpu.go.id/tanggapan/">https://helpdesk.kpu.go.id/tanggapan/</a>
-<a href="https://sikaper.disperakim.jatengprov.go.id/berita/">https://sikaper.disperakim.jatengprov.go.id/berita/</a>
 <a href="https://pkmteja.pamekasankab.go.id/">https://pkmteja.pamekasankab.go.id/</a>
 <a href="https://ddpi.kaltimprov.go.id/demo/">https://ddpi.kaltimprov.go.id/demo/</a>
 <a href="https://ddpi.kaltimprov.go.id/bola/">https://ddpi.kaltimprov.go.id/bola/</a>
