@@ -44,7 +44,6 @@
 <a href="https://ddpi.kaltimprov.go.id/bananas/">https://ddpi.kaltimprov.go.id/bananas/</a>
 <a href="https://perpus.menpan.go.id/menyala/">https://perpus.menpan.go.id/menyala/</a>
 <a href="https://e-spip.kpu.go.id/sbopoker/">https://e-spip.kpu.go.id/sbopoker/</a>
-<a href="https://ddpi.kaltimprov.go.id/sbopokerrr/">https://ddpi.kaltimprov.go.id/sbopokerrr/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/totsuper/">https://s1-aktuaria.fmipa.unesa.ac.id/totsuper/</a>
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/sbo/">https://s1-aktuaria.fmipa.unesa.ac.id/sbo/</a>
 <a href="https://smanegeri7semarang.sch.id/sbpk/">https://smanegeri7semarang.sch.id/sbpk/</a>
