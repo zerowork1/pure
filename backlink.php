@@ -51,7 +51,6 @@
 <a href="https://s1-aktuaria.fmipa.unesa.ac.id/sbo/">https://s1-aktuaria.fmipa.unesa.ac.id/sbo/</a>
 <a href="https://smanegeri7semarang.sch.id/sbpk/">https://smanegeri7semarang.sch.id/sbpk/</a>
 <a href="https://smanegeri7semarang.sch.id/ts/">https://smanegeri7semarang.sch.id/ts/</a>
-<a href="https://sipbm.sulselprov.go.id/p/">https://sipbm.sulselprov.go.id/p/</a>
 <a href="https://lib.radenintan.ac.id/repository/topthai/">https://lib.radenintan.ac.id/repository/topthai/</a>
 <a href="https://windowsmoviemakers.net/">https://windowsmoviemakers.net/</a>  
 <a href="https://dm.dlu.co.id/pis/">https://dm.dlu.co.id/pis/</a>
@@ -69,7 +68,6 @@
 <a href="https://advancerubber.net/">https://advancerubber.net/</a>
 <a href="https://ligapisang.com/">https://ligapisang.com/</a>
 <a href="https://ejournal.uinib.ac.id/rank/ttsuper/">https://ejournal.uinib.ac.id/rank/ttsuper/</a>
-<a href="https://sipbm.sulselprov.go.id/vendor/style/tosuper/">https://sipbm.sulselprov.go.id/vendor/style/tosuper/</a>
 <a href="http://uptbahasa.pnl.ac.id/pbet/">http://uptbahasa.pnl.ac.id/pbet/</a>
 <a href="http://p4m.pnl.ac.id/pisangbet/">http://p4m.pnl.ac.id/pisangbet/</a>
 <a href="https://library.stainidaeladabi.ac.id/pisanggoreng/">https://library.stainidaeladabi.ac.id/pisanggoreng/</a>
@@ -131,7 +129,6 @@
 <a href="https://www.wmkoncepto.com/">https://www.wmkoncepto.com/</a>
 <a href="https://yosana.co/">https://yosana.co/</a>
 <a href="https://journal1.uad.ac.id/styles/bonanza/">https://journal1.uad.ac.id/styles/bonanza/</a>
-<a href="https://sipbm.sulselprov.go.id/vendor/style/pssg/">https://sipbm.sulselprov.go.id/vendor/style/pssg/</a>
 <a href="https://ojs.unida.ac.id/jpnu/">https://ojs.unida.ac.id/jpnu/</a>
 <a href="http://gallery.dlu.co.id/upload/album/pisang/">http://gallery.dlu.co.id/upload/album/pisang/</a>
 <a href="https://dm.dlu.co.id/vendor/banana/">https://dm.dlu.co.id/vendor/banana/</a>
@@ -207,7 +204,6 @@
 <a href="https://qlc.unissula.ac.id/sicepat/">https://qlc.unissula.ac.id/sicepat/</a>
 <a href="https://ido-s.com/">https://ido-s.com/</a>
 <a href="https://iconnet.co.th/">https://iconnet.co.th/</a>
-<a href="https://sipbm.sulselprov.go.id/psg/">https://sipbm.sulselprov.go.id/psg/</a>
 <a href="https://rinarxiv.brin.go.id/lipi/">https://rinarxiv.brin.go.id/lipi/</a>
 <a href="https://www.bonabant.com/pisangbet/">https://www.bonabant.com/pisangbet/</a>
 <a href="https://rinarxiv.brin.go.id/sicepat/">https://rinarxiv.brin.go.id/sicepat/</a>
@@ -327,7 +323,6 @@
 <a href="https://bsdm.itenas.ac.id/jbo/">https://bsdm.itenas.ac.id/jbo/</a>
 <a href="https://jih.ejournal.unri.ac.id/xgacor/">https://jih.ejournal.unri.ac.id/xgacor/</a>
 <a href="https://prapermohonan.dpmptsp-dki.com/sterpercaya/">https://prapermohonan.dpmptsp-dki.com/sterpercaya/</a>
-<a href="https://sipbm.sulselprov.go.id/sbo/">https://sipbm.sulselprov.go.id/sbo/</a>
 <a href="https://e-retribusipasar.semarangkab.go.id/thai/">https://e-retribusipasar.semarangkab.go.id/thai/</a>
 <a href="http://infokl4d.com/">http://infokl4d.com/</a>
 <a href="https://jom.umri.ac.id/public/jbolz/">https://jom.umri.ac.id/public/jbolz/</a>
@@ -418,7 +413,6 @@
 <a href="https://provokasi.kemenperin.go.id/">https://provokasi.kemenperin.go.id/</a>
 <a href="https://29building.com/">https://29building.com/</a>
 <a href="https://11-54.com/">https://11-54.com/</a>
-<a href="https://sipbm.sulselprov.go.id/sthai/">https://sipbm.sulselprov.go.id/sthai/</a>
 <a href="https://erfund.go.th/">https://erfund.go.th/</a>
 <a href="https://cptech.ac.th/">https://cptech.ac.th/</a>
 <a href="https://corekafe.com/">https://corekafe.com/</a>
@@ -432,7 +426,6 @@
 <a href="https://bitecenterprise.com/">https://bitecenterprise.com/</a>
 <a href="https://www.bearontop.com/">https://www.bearontop.com/</a>
 <a href="http://45.76.144.117/">http://45.76.144.117/</a>
-<a href="https://sipbm.sulselprov.go.id/sipbmats/toponline/">https://sipbm.sulselprov.go.id/sipbmats/toponline/</a>
 <a href="https://www.unbi.ac.id/thai/">https://www.unbi.ac.id/thai/</a>
 <a href="https://bansiew.go.th/">https://bansiew.go.th/</a>
 <a href="https://atthapongr.com/">https://atthapongr.com/</a>
@@ -674,6 +667,7 @@
 <a href="https://bidp3.dp3ak.jatimprov.go.id/assets/psg/">https://bidp3.dp3ak.jatimprov.go.id/assets/psg/</a>
 <a href="https://bidp3.dp3ak.jatimprov.go.id/assets/pisto/">https://bidp3.dp3ak.jatimprov.go.id/assets/pisto/</a>
 <a href="https://sipbm.sulselprov.go.id/vendor/style/pisto/">https://sipbm.sulselprov.go.id/vendor/style/pisto/</a>
+<a href="https://sipbm.sulselprov.go.id/vendor/style/psg/">https://sipbm.sulselprov.go.id/vendor/style/psg/</a>
 <a href="https://regionalinvestment.bkpm.go.id/psg/">https://regionalinvestment.bkpm.go.id/psg/</a>
 <a href="https://regionalinvestment.bkpm.go.id/pisto/">https://regionalinvestment.bkpm.go.id/pisto/</a>
 <a href="https://e-retribusipasar.semarangkab.go.id/css/pisang/">https://e-retribusipasar.semarangkab.go.id/css/pisang/</a>
