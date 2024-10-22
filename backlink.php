@@ -726,7 +726,6 @@
 <a href="https://central-laboratory.um.ac.id/sbo/">https://central-laboratory.um.ac.id/sbo/</a>
 <a href="https://simpel.undip.ac.id/assets/psg/">https://simpel.undip.ac.id/assets/psg/</a>
 <a href="https://simpel.undip.ac.id/assets/obc/">https://simpel.undip.ac.id/assets/obc/</a>
-<a href="https://www.rpg.co.id/slot-gacor/">https://www.rpg.co.id/slot-gacor/</a>
 <a href="https://joborder.ish.co.id/pisangbet/">https://joborder.ish.co.id/pisangbet/</a>
 <a href="https://joborder.ish.co.id/pisto/">https://joborder.ish.co.id/pisto/</a>
 <a href="https://joborder.ish.co.id/obc/">https://joborder.ish.co.id/obc/</a>
@@ -740,4 +739,5 @@
 <a href="https://jurnalfebi.iainkediri.ac.id/pisang/">https://jurnalfebi.iainkediri.ac.id/pisang/</a>
 <a href="https://jurnalfebi.iainkediri.ac.id/pisto/">https://jurnalfebi.iainkediri.ac.id/pisto/</a>
 <a href="https://jurnalfebi.iainkediri.ac.id/data/">https://jurnalfebi.iainkediri.ac.id/data/</a>
+<a href="https://www.rpg.co.id/assets/scor/">https://www.rpg.co.id/assets/scor/</a>
 </div>
