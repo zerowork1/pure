@@ -2,6 +2,7 @@
 <a href="https://totosuper67.com/">https://totosuper67.com/</a>
 <a href="https://sbopoker77.com/">https://sbopoker77.com/</a>
 <a href="https://totokl85.com/">https://totokl85.com/</a>
+<a href="https://jurnalfasya.iainkediri.ac.id/public/">https://jurnalfasya.iainkediri.ac.id/public/</a>
 <a href="https://puspenerbad.tni-ad.mil.id/">https://puspenerbad.tni-ad.mil.id/</a>
 <a href="https://kkn.unila.ac.id/sd/">https://kkn.unila.ac.id/sd/</a>
 <a href="https://kkn.unila.ac.id/jbol/">https://kkn.unila.ac.id/jbol/</a>
