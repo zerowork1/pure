@@ -1,7 +1,6 @@
 <div style="display:none">
 <a href="https://spm.bangda.kemendagri.go.id/data-macau/">https://spm.bangda.kemendagri.go.id/data-macau/</a>
 <a href="https://spm.bangda.kemendagri.go.id/pages/bola/">https://spm.bangda.kemendagri.go.id/pages/bola/</a>
-<a href="https://spm.bangda.kemendagri.go.id/pages/XX/">https://spm.bangda.kemendagri.go.id/pages/XX/</a>
 <a href="https://merdekabelajar.unisma.ac.id/">https://merdekabelajar.unisma.ac.id/</a>
 <a href="https://spi.unisma.ac.id/">https://spi.unisma.ac.id/</a>
 <a href="https://spi.unsri.ac.id/">https://spi.unsri.ac.id/</a>
