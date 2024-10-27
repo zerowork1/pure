@@ -6,6 +6,7 @@
 <a href="https://totosuper67.com/">https://totosuper67.com/</a>
 <a href="https://sbopoker77.com/">https://sbopoker77.com/</a>
 <a href="https://totokl85.com/">https://totokl85.com/</a>
+<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a> 
 <a href="https://kkn.unila.ac.id/kuda-lari/">https://kkn.unila.ac.id/kuda-lari/</a>
 <a href="https://espmi.ppb.ac.id/">https://espmi.ppb.ac.id/</a>
 <a href="http://62.171.189.159/">http://62.171.189.159/</a>
@@ -51,7 +52,6 @@
 <a href="https://thenextreal.net/the-glamor/">https://thenextreal.net/the-glamor/</a>
 <a href="https://www.bonabant.com/obctop/">https://www.bonabant.com/obctop/</a>
 <a href="https://ddpi.kaltimprov.go.id/otop/">https://ddpi.kaltimprov.go.id/otop/</a>
-<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a> 
 <a href="https://obcbet.ibnusina.co.id/">https://obcbet.ibnusina.co.id/</a> 
 <a href="https://spm.bangda.kemendagri.go.id/layanan/">https://spm.bangda.kemendagri.go.id/layanan/</a>  
 <a href="https://sitab.kpu.go.id/perencanaan/">https://sitab.kpu.go.id/perencanaan/</a>
