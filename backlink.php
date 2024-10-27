@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://merdekabelajar.unisma.ac.id/">https://merdekabelajar.unisma.ac.id/</a>
 <a href="https://spi.unisma.ac.id/">https://spi.unisma.ac.id/</a>
 <a href="https://spi.unsri.ac.id/">https://spi.unsri.ac.id/</a>
 <a href="https://rol.postel.go.id/">https://rol.postel.go.id/</a>
