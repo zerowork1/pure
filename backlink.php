@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://simak-ppti.unesa.ac.id/">https://simak-ppti.unesa.ac.id/</a>
+<a href="https://kkn.unila.ac.id/">https://kkn.unila.ac.id/</a>
 <a href="https://ipmsidoarjo.or.id/">https://ipmsidoarjo.or.id/</a>
 <a href="https://proceeding.iainkediri.ac.id/">https://proceeding.iainkediri.ac.id/</a>
 <a href="https://journal.uns.ac.id/">https://journal.uns.ac.id/</a>
