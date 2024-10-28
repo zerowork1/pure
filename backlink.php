@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ekinerja.rsudalihsan.com/">https://ekinerja.rsudalihsan.com/</a>
 <a href="https://sikaper.disperakim.jatengprov.go.id/files/">https://sikaper.disperakim.jatengprov.go.id/files/</a>
 <a href="https://sikaper.disperakim.jatengprov.go.id/demotop/">https://sikaper.disperakim.jatengprov.go.id/demotop/</a>
 <a href="https://siva.kemenperin.go.id/storage/">https://siva.kemenperin.go.id/storage/</a>
