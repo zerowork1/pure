@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://simpel.undip.ac.id/">https://simpel.undip.ac.id/</a>
 <a href="https://spm.bangda.kemendagri.go.id/pages/">https://spm.bangda.kemendagri.go.id/pages/</a>
 <a href="https://amdalnet-stg.menlhk.go.id/">https://amdalnet-stg.menlhk.go.id/</a>
 <a href="https://bem.unesa.ac.id/">https://bem.unesa.ac.id/</a>
