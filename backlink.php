@@ -8,7 +8,6 @@
 <a href="https://app-history.unesa.ac.id/">https://app-history.unesa.ac.id/</a>
 <a href="https://spm.bangda.kemendagri.go.id/data-macau/">https://spm.bangda.kemendagri.go.id/data-macau/</a>
 <a href="https://spm.bangda.kemendagri.go.id/pages/bola/">https://spm.bangda.kemendagri.go.id/pages/bola/</a>
-<a href="https://spm.bangda.kemendagri.go.id/pages/XX/">https://spm.bangda.kemendagri.go.id/pages/XX/</a>
 <a href="https://103.123.158.69/">https://103.123.158.69/</a>
 <a href="https://merdekabelajar.unisma.ac.id/">https://merdekabelajar.unisma.ac.id/</a>
 <a href="https://spi.unisma.ac.id/">https://spi.unisma.ac.id/</a>
