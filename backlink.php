@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ipmsidoarjo.or.id/">https://ipmsidoarjo.or.id/</a>
 <a href="https://proceeding.iainkediri.ac.id/">https://proceeding.iainkediri.ac.id/</a>
 <a href="https://journal.uns.ac.id/">https://journal.uns.ac.id/</a>
 <a href="https://simpel.undip.ac.id/">https://simpel.undip.ac.id/</a>
