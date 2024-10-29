@@ -6,6 +6,8 @@
 <a href="https://journal.uns.ac.id/">https://journal.uns.ac.id/</a>
 <a href="https://simpel.undip.ac.id/">https://simpel.undip.ac.id/</a>
 <a href="https://spm.bangda.kemendagri.go.id/pages/">https://spm.bangda.kemendagri.go.id/pages/</a>
+<a href="https://spm.bangda.kemendagri.go.id/data-macau/">https://spm.bangda.kemendagri.go.id/data-macau/</a>
+<a href="https://sikaper.disperakim.jatengprov.go.id/pages/">https://sikaper.disperakim.jatengprov.go.id/pages/</a>
 <a href="https://amdalnet-stg.menlhk.go.id/">https://amdalnet-stg.menlhk.go.id/</a>
 <a href="https://bem.unesa.ac.id/">https://bem.unesa.ac.id/</a>
 <a href="https://ekinerja.rsudalihsan.com/">https://ekinerja.rsudalihsan.com/</a>
@@ -16,7 +18,6 @@
 <a href="https://sportsevents.unesa.ac.id/">https://sportsevents.unesa.ac.id/</a>
 <a href="https://cbt-ppti.unesa.ac.id/">https://cbt-ppti.unesa.ac.id/</a>
 <a href="https://app-history.unesa.ac.id/">https://app-history.unesa.ac.id/</a>
-<a href="https://spm.bangda.kemendagri.go.id/data-macau/">https://spm.bangda.kemendagri.go.id/data-macau/</a>
 <a href="https://spm.bangda.kemendagri.go.id/pages/bola/">https://spm.bangda.kemendagri.go.id/pages/bola/</a>
 <a href="https://103.123.158.69/">https://103.123.158.69/</a>
 <a href="https://merdekabelajar.unisma.ac.id/">https://merdekabelajar.unisma.ac.id/</a>
