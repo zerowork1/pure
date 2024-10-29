@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ki.kalselprov.go.id/">SLOT</a>
 <a href="https://mti.darmajaya.ac.id">https://mti.darmajaya.ac.id</a>
 <a href="https://simak-ppti.unesa.ac.id/">https://simak-ppti.unesa.ac.id/</a>
 <a href="https://kkn.unila.ac.id/">https://kkn.unila.ac.id/</a>
