@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://dpppa.kalselprov.go.id/assets/">SLOT THAILAND</a>
+<a href="https://blk.kalselprov.go.id/">PISANGBET</a>
 <a href="https://aicll.sastra.uisu.ac.id/">https://aicll.sastra.uisu.ac.id/</a>
 <a href="https://sisarna.fsp.isi.ac.id/">https://sisarna.fsp.isi.ac.id/</a>
 <a href="https://observium.isi.ac.id/pages/">OBCTOP</a>
