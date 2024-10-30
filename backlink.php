@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://jpkstar.com/">https://jpkstar.com/</a>
 <a href="https://dpppa.kalselprov.go.id/assets/">SLOT THAILAND</a>
 <a href="https://blk.kalselprov.go.id/">PISANGBET</a>
 <a href="https://aicll.sastra.uisu.ac.id/">https://aicll.sastra.uisu.ac.id/</a>
