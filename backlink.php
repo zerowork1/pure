@@ -116,7 +116,6 @@
 <a href="https://cni-eng.co.th/">https://cni-eng.co.th/</a> 
 <a href="https://advancerubber.net/">https://advancerubber.net/</a>
 <a href="https://ligapisang.com/">https://ligapisang.com/</a>
-<a href="https://ejournal.uinib.ac.id/rank/ttsuper/">https://ejournal.uinib.ac.id/rank/ttsuper/</a>
 <a href="http://uptbahasa.pnl.ac.id/pbet/">http://uptbahasa.pnl.ac.id/pbet/</a>
 <a href="http://p4m.pnl.ac.id/pisangbet/">http://p4m.pnl.ac.id/pisangbet/</a>
 <a href="https://library.stainidaeladabi.ac.id/pisanggoreng/">https://library.stainidaeladabi.ac.id/pisanggoreng/</a>
