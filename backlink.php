@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://jawaiselatan.sambas.go.id">SLOT MAHJONG</a>
 <a href="https://bogor.rkbmd.id/">SLOT GACOR</a>
 <a href="https://simaster.iainambon.ac.id/">SLOT DEMO</a>
 <a href="https://bkim.jatengprov.go.id/pages/">https://bkim.jatengprov.go.id/pages/</a>
