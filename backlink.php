@@ -754,7 +754,6 @@
 <a href="https://central-laboratory.um.ac.id/toto/">https://central-laboratory.um.ac.id/toto/</a>
 <a href="https://central-laboratory.um.ac.id/macau/">https://central-laboratory.um.ac.id/macau/</a>
 <a href="https://central-laboratory.um.ac.id/sbo/">https://central-laboratory.um.ac.id/sbo/</a>
-<a href="https://simpel.undip.ac.id/assets/psg/">https://simpel.undip.ac.id/assets/psg/</a>
 <a href="https://simpel.undip.ac.id/assets/obc/">https://simpel.undip.ac.id/assets/obc/</a>
 <a href="https://joborder.ish.co.id/pisangbet/">https://joborder.ish.co.id/pisangbet/</a>
 <a href="https://joborder.ish.co.id/pisto/">https://joborder.ish.co.id/pisto/</a>
@@ -764,7 +763,7 @@
 <a href="https://joborder.ish.co.id/data/">https://joborder.ish.co.id/data/</a>
 <a href="https://ddpi.kaltimprov.go.id/pisto/">https://ddpi.kaltimprov.go.id/pisto/</a>
 <a href="https://ddpi.kaltimprov.go.id/pisang/">https://ddpi.kaltimprov.go.id/pisang/</a>
-<a href="https://jurnalfebi.iainkediri.ac.id/psg/">https://jurnalfebi.iainkediri.ac.id/psg/</a>
 <a href="https://jurnalfebi.iainkediri.ac.id/pisto/">https://jurnalfebi.iainkediri.ac.id/pisto/</a>
 <a href="https://www.rpg.co.id/assets/scor/">https://www.rpg.co.id/assets/scor/</a>
+<a href="https://jurnalfebi.iainkediri.ac.id/lol/">https://jurnalfebi.iainkediri.ac.id/lol/</a>
 </div>
