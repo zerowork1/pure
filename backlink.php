@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://bkim.jatengprov.go.id/pages/">https://bkim.jatengprov.go.id/pages/</a>
 <a href="https://jpkstar.com/">https://jpkstar.com/</a>
 <a href="https://dpkp.kalselprov.go.id/sbopoker/">https://dpkp.kalselprov.go.id/sbopoker/</a>
 <a href="https://dpkp.kalselprov.go.id/bola/">sbobet88</a>
