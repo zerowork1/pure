@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://bogor.rkbmd.id/">SLOT GACOR</a>
+<a href="https://simaster.iainambon.ac.id/">SLOT DEMO</a>
 <a href="https://bkim.jatengprov.go.id/pages/">https://bkim.jatengprov.go.id/pages/</a>
 <a href="https://jpkstar.com/">https://jpkstar.com/</a>
 <a href="https://dpkp.kalselprov.go.id/sbopoker/">https://dpkp.kalselprov.go.id/sbopoker/</a>
