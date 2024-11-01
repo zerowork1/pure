@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://majalah.bsilhk.menlhk.go.id/">https://majalah.bsilhk.menlhk.go.id/</a>
 <a href="http://52.252.1.167/">http://52.252.1.167/</a>
 <a href="https://jawaiselatan.sambas.go.id">SLOT MAHJONG</a>
 <a href="https://bogor.rkbmd.id/">SLOT GACOR</a>
