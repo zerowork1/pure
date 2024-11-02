@@ -773,4 +773,6 @@
 <a href="https://jurnalfebi.iainkediri.ac.id/pisto/">https://jurnalfebi.iainkediri.ac.id/pisto/</a>
 <a href="https://www.rpg.co.id/assets/scor/">https://www.rpg.co.id/assets/scor/</a>
 <a href="https://jurnalfebi.iainkediri.ac.id/lol/">https://jurnalfebi.iainkediri.ac.id/lol/</a>
+<a href="https://elearningppds.med.unhas.ac.id/psg/">https://elearningppds.med.unhas.ac.id/psg/</a>
+<a href="https://elearningppds.med.unhas.ac.id/pisto/">https://elearningppds.med.unhas.ac.id/pisto/</a>
 </div>
