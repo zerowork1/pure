@@ -1,6 +1,6 @@
 <div style="display:none">
-<a href="https://sinaf-ukom.kemkes.go.id/tt4/">SLOT GACOR</a>
-<a href="https://sinaf-ukom.kemkes.go.id/demo/">SLOT DEMO</a>
+<a href="https://sinaf-ukom.kemkes.go.id/tt4/">slot gacor</a>
+<a href="https://sinaf-ukom.kemkes.go.id/demo/">slot demo</a>
 <a href="https://simlatkes.kemkes.go.id/pisang/">https://simlatkes.kemkes.go.id/pisang/</a>
 <a href="https://kkn.unila.ac.id/sbopoker/">https://kkn.unila.ac.id/sbopoker/</a>
 <a href="https://sbopoker77.com/">https://sbopoker77.com/</a>
