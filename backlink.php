@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://simlatkes.kemkes.go.id/pisang/">https://simlatkes.kemkes.go.id/pisang/</a>
 <a href="https://abdipersadafm.kalselprov.go.id/radio/">https://abdipersadafm.kalselprov.go.id/radio/</a>
 <a href="https://abdipersadafm.kalselprov.go.id/pemerintah/">https://abdipersadafm.kalselprov.go.id/pemerintah/</a>
 <a href="https://abdipersadafm.kalselprov.go.id/berita/">https://abdipersadafm.kalselprov.go.id/berita/</a>"
