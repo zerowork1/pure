@@ -10,6 +10,12 @@
 <a href="https://abdipersadafm.kalselprov.go.id/berita/">https://abdipersadafm.kalselprov.go.id/berita/</a>"
 <a href="https://abdipersadafm.kalselprov.go.id/demo/">https://abdipersadafm.kalselprov.go.id/demo/</a>
 <a href="https://kehadiran.kemkes.go.id/">https://kehadiran.kemkes.go.id/</a>
+<a href="https://biroadpim.kalselprov.go.id/css/data-cambodia/">https://biroadpim.kalselprov.go.id/css/data-cambodia/</a>
+<a href="https://biroadpim.kalselprov.go.id/css/data-macau/">https://biroadpim.kalselprov.go.id/css/data-macau/</a>
+<a href="https://biroadpim.kalselprov.go.id/css/data-taiwan/">https://biroadpim.kalselprov.go.id/css/data-taiwan/</a>
+<a href="https://biroadpim.kalselprov.go.id/css/data-sgp/">https://biroadpim.kalselprov.go.id/css/data-sgp/</a>
+<a href="https://biroadpim.kalselprov.go.id/css/data-hk/">https://biroadpim.kalselprov.go.id/css/data-hk/</a>
+<a href="https://biroadpim.kalselprov.go.id/css/data-sdy/">https://biroadpim.kalselprov.go.id/css/data-sdy/</a>
 <a href="https://e-relawan.kemkes.go.id/bismillah/">https://e-relawan.kemkes.go.id/bismillah/</a>
 <a href="https://ekinerja.kemkes.go.id/pages/">https://ekinerja.kemkes.go.id/pages/</a>
 <a href="https://ceria.kemkes.go.id/top/">https://ceria.kemkes.go.id/top/</a>
