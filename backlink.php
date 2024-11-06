@@ -3,6 +3,7 @@
 <a href="https://totokl4d.id/">https://totokl4d.id/</a>
 <a href="https://wjimlim.com/">https://wjimlim.com/</a>
 <a href="https://yamostudio.com/">https://yamostudio.com/</a>
+<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a> 
 <a href="https://manoneambon.sch.id/style/jbl/">https://manoneambon.sch.id/style/jbl/</a>
 <a href="https://manoneambon.sch.id/style/sdm/">https://manoneambon.sch.id/style/sdm/</a>
 <a href="https://manoneambon.sch.id/style/hk/">https://manoneambon.sch.id/style/hk/</a>
@@ -78,7 +79,6 @@
 <a href="https://rol.postel.go.id/">https://rol.postel.go.id/</a>
 <a href="https://totosuper67.com/">https://totosuper67.com/</a>
 <a href="https://totokl85.com/">https://totokl85.com/</a>
-<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a> 
 <a href="https://kkn.unila.ac.id/kuda-lari/">https://kkn.unila.ac.id/kuda-lari/</a>
 <a href="https://espmi.ppb.ac.id/">https://espmi.ppb.ac.id/</a>
 <a href="http://62.171.189.159/">http://62.171.189.159/</a>
