@@ -1,4 +1,12 @@
 <div style="display:none">
+<a href="https://wjimlim.com/">https://wjimlim.com/</a>
+<a href="https://yamostudio.com/">https://yamostudio.com/</a>
+<a href="https://manoneambon.sch.id/style/jbl/">https://manoneambon.sch.id/style/jbl/</a>
+<a href="https://manoneambon.sch.id/style/sdm/">https://manoneambon.sch.id/style/sdm/</a>
+<a href="https://manoneambon.sch.id/style/hk/">https://manoneambon.sch.id/style/hk/</a>
+<a href="https://luwurayakaltim.org/obc/">https://luwurayakaltim.org/obc/</a>
+<a href="https://luwurayakaltim.org/top/">https://luwurayakaltim.org/top/</a>
+<a href="https://luwurayakaltim.org/4d/">https://luwurayakaltim.org/4d/</a>
 <a href="https://esimdadu.kemkes.go.id/hitam/">https://esimdadu.kemkes.go.id/hitam/</a>
 <a href="https://sinaf-ukom.kemkes.go.id/tt4/">slot gacor</a>
 <a href="https://sinaf-ukom.kemkes.go.id/demo/">slot demo</a>
