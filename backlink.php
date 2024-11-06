@@ -3,7 +3,8 @@
 <a href="https://totokl4d.id/">https://totokl4d.id/</a>
 <a href="https://wjimlim.com/">https://wjimlim.com/</a>
 <a href="https://yamostudio.com/">https://yamostudio.com/</a>
-<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a> 
+<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a>
+<a href="https://www.bordomodern.com/totokl/">https://www.bordomodern.com/totokl/</a>
 <a href="https://manoneambon.sch.id/style/jbl/">https://manoneambon.sch.id/style/jbl/</a>
 <a href="https://manoneambon.sch.id/style/sdm/">https://manoneambon.sch.id/style/sdm/</a>
 <a href="https://manoneambon.sch.id/style/hk/">https://manoneambon.sch.id/style/hk/</a>
@@ -131,7 +132,6 @@
 <a href="https://ukom-jf.kpu.go.id/data-macau/">https://ukom-jf.kpu.go.id/data-macau/</a>
 <a href="https://www.bordomodern.com/sbopoker/">https://www.bordomodern.com/sbopoker/</a>
 <a href="https://www.bordomodern.com/totosuper/">https://www.bordomodern.com/totosuper/</a>
-<a href="https://www.bordomodern.com/totokl/">https://www.bordomodern.com/totokl/</a>
 <a href="https://helpdesk.kpu.go.id/tanggapan/">https://helpdesk.kpu.go.id/tanggapan/</a>
 <a href="https://pkmteja.pamekasankab.go.id/">https://pkmteja.pamekasankab.go.id/</a>
 <a href="https://ddpi.kaltimprov.go.id/demo/">https://ddpi.kaltimprov.go.id/demo/</a>
