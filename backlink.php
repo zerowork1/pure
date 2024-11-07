@@ -224,4 +224,5 @@
 <a href="https://elearningppds.med.unhas.ac.id/psg/">https://elearningppds.med.unhas.ac.id/psg/</a>
 <a href="https://elearningppds.med.unhas.ac.id/pisto/">https://elearningppds.med.unhas.ac.id/pisto/</a>
 <a href="https://heylink.me/pisangbet1/">pisangbet</a>
+<a href="https://linktr.ee/pisangbet1">pisangbet</a>
 </div>
