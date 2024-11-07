@@ -1,7 +1,5 @@
-<?php
-system("pwd;id");
-?>
 <div style="display:none">
+<a href="https://penindakan.pom.go.id/">https://penindakan.pom.go.id/</a>
 <a href="https://tropical-nutrition.com/">https://tropical-nutrition.com/</a>
 <a href="https://www.universeballoon.com/">https://www.universeballoon.com/</a>
 <a href="https://uyong.com/">https://uyong.com/</a>
