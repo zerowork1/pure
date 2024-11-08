@@ -21,6 +21,8 @@
 <a href="https://weddingmc.in.th/">https://weddingmc.in.th/</a>
 <a href="https://wellservetech.com/">https://wellservetech.com/</a>
 <a href="https://wetraincenter.com/">https://wetraincenter.com/</a>
+<a href="https://sipapifarmalkes.kemkes.go.id/src/">https://sipapifarmalkes.kemkes.go.id/src/</a>
+<a href="https://sipapifarmalkes.kemkes.go.id/data/">https://sipapifarmalkes.kemkes.go.id/data/</a>
 <a href="https://kesmas.kemkes.go.id/blog/">https://kesmas.kemkes.go.id/blog/</a>
 <a href="https://totokl4d.id/">https://totokl4d.id/</a>
 <a href="https://wjimlim.com/">https://wjimlim.com/</a>
