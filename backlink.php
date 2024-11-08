@@ -11,6 +11,7 @@
 <a href="https://kkn.unila.ac.id/kuda-lari/">https://kkn.unila.ac.id/kuda-lari/</a>
 <a href="https://wonosobo.pramukajateng.or.id/news/">https://wonosobo.pramukajateng.or.id/news/</a>
 <a href="https://wonosobo.pramukajateng.or.id/totokl/">https://wonosobo.pramukajateng.or.id/totokl/</a>
+<a href="https://wonosobo.pramukajateng.or.id/bola/">https://wonosobo.pramukajateng.or.id/bola/</a>
 <a href="https://penindakan.pom.go.id/">https://penindakan.pom.go.id/</a>
 <a href="https://tropical-nutrition.com/">https://tropical-nutrition.com/</a>
 <a href="https://www.universeballoon.com/">https://www.universeballoon.com/</a>
