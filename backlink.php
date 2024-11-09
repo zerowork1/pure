@@ -1,4 +1,11 @@
 <div style="display:none">
+<a href="https://thai-real-estate-broker-association.com/policy/">https://thai-real-estate-broker-association.com/policy/</a>
+<a href="https://thaiskillplusconsultant.com/hr-monday/">https://thaiskillplusconsultant.com/hr-monday/</a>
+<a href="https://thaivb.com/privacy/">https://thaivb.com/privacy/</a>
+<a href="https://www.thaiviwat.com/company-profile/">https://www.thaiviwat.com/company-profile/</a>
+<a href="https://thaiwireproducts.com/tog/">https://thaiwireproducts.com/tog/</a>
+<a href="https://thephuketdeepseaport.com/4d/">https://thephuketdeepseaport.com/4d/</a>
+<a href="https://thipcapital.com/">https://thipcapital.com/</a>
 <a href="https://tippimaan.com/review/">https://tippimaan.com/review/</a>
 <a href="https://tkplusmarine.com/">https://tkplusmarine.com/</a>
 <a href="https://tmkpalmoil.com/csr/">https://tmkpalmoil.com/csr/</a>
