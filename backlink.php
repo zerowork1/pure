@@ -3,6 +3,7 @@
 <a href="https://thaiskillplusconsultant.com/hr-monday/">https://thaiskillplusconsultant.com/hr-monday/</a>
 <a href="https://thaivb.com/privacy/">https://thaivb.com/privacy/</a>
 <a href="https://alpha88club.com/">https://alpha88club.com/</a>
+<a href="https://rtpslotpisangbet.live/">https://rtpslotpisangbet.live/</a>
 <a href="https://donostikluba.com/">https://donostikluba.com/</a>
 <a href="https://hipdroprecords.com/">https://hipdroprecords.com/</a>  
 <a href="https://www.thaiviwat.com/company-profile/">https://www.thaiviwat.com/company-profile/</a>
