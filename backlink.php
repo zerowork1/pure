@@ -1,4 +1,13 @@
 <div style="display:none">
+<a href="https://thaiivnetwork-innt.org/ha-virtual-forum-2021/">https://thaiivnetwork-innt.org/ha-virtual-forum-2021/</a>
+<a href="https://thaiivnetwork-innt.org/privacy-policy/">https://thaiivnetwork-innt.org/privacy-policy/</a>
+<a href="https://thaiivnetwork-innt.org/quotation/">https://thaiivnetwork-innt.org/quotation/</a>
+<a href="https://thaikeras.com/2018/guide-tour-series/">https://thaikeras.com/2018/guide-tour-series/</a>
+<a href="https://thaikeras.com/2018/setup-kaggle-workshop/">https://thaikeras.com/2018/setup-kaggle-workshop/</a>
+<a href="https://thaikeras.com/2018/aisetup/">https://thaikeras.com/2018/aisetup/</a>
+<a href="https://thaiqhouse.com/obcbet/">https://thaiqhouse.com/obcbet/</a>
+<a href="https://thaiqhouse.com/obctop/">https://thaiqhouse.com/obctop/</a>
+<a href="https://thaiqhouse.com/obc4d/">https://thaiqhouse.com/obc4d/</a>
 <a href="https://thai-real-estate-broker-association.com/policy/">https://thai-real-estate-broker-association.com/policy/</a>
 <a href="https://thaiskillplusconsultant.com/hr-monday/">https://thaiskillplusconsultant.com/hr-monday/</a>
 <a href="https://thaivb.com/privacy/">https://thaivb.com/privacy/</a>
