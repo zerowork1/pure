@@ -14,11 +14,7 @@
 <a href="https://thaiqhouse.com/obc4d/">https://thaiqhouse.com/obc4d/</a>
 <a href="https://thai-real-estate-broker-association.com/policy/">https://thai-real-estate-broker-association.com/policy/</a>
 <a href="https://thaiskillplusconsultant.com/hr-monday/">https://thaiskillplusconsultant.com/hr-monday/</a>
-<a href="https://thaivb.com/privacy/">https://thaivb.com/privacy/</a>
-<a href="https://alpha88club.com/">https://alpha88club.com/</a>
-<a href="https://rtpslotpisangbet.live/">https://rtpslotpisangbet.live/</a>
-<a href="https://donostikluba.com/">https://donostikluba.com/</a>
-<a href="https://hipdroprecords.com/">https://hipdroprecords.com/</a>  
+<a href="https://thaivb.com/privacy/">https://thaivb.com/privacy/</a> 
 <a href="https://www.thaiviwat.com/company-profile/">https://www.thaiviwat.com/company-profile/</a>
 <a href="https://thaiwireproducts.com/tog/">https://thaiwireproducts.com/tog/</a>
 <a href="https://thephuketdeepseaport.com/4d/">https://thephuketdeepseaport.com/4d/</a>
@@ -141,12 +137,7 @@
 <a href="https://kkn.unila.ac.id/obctop/">https://kkn.unila.ac.id/obctop/</a>
 <a href="https://www.bordomodern.com/sbopoker/">https://www.bordomodern.com/sbopoker/</a>
 <a href="https://www.bordomodern.com/totosuper/">https://www.bordomodern.com/totosuper/</a>
-<a href="https://windowsmoviemakers.net/">https://windowsmoviemakers.net/</a>  
-<a href="https://telugusaahityam.com/">https://telugusaahityam.com/</a>
 <a href="https://ligapisang.com/">https://ligapisang.com/</a>
-<a href="https://41naturals.com/">https://41naturals.com/</a>
-<a href="https://resistancephl.com/">https://resistancephl.com/</a>
-<a href="https://chicquero.com/">https://chicquero.com/</a>
 <a href="https://www.thaiviwat.com/wp-content/uploads/">Pisangbet</a>
 <a href="https://www.celessamui.com/">https://www.celessamui.com/</a>
 <a href="http://202.69.191.14/">http://202.69.191.14/</a>
@@ -262,7 +253,6 @@
 <a href="https://jurnalfebi.iainkediri.ac.id/lol/">https://jurnalfebi.iainkediri.ac.id/lol/</a>
 <a href="https://elearningppds.med.unhas.ac.id/psg/">https://elearningppds.med.unhas.ac.id/psg/</a>
 <a href="https://elearningppds.med.unhas.ac.id/pisto/">https://elearningppds.med.unhas.ac.id/pisto/</a>
-<a href="https://heylink.me/pisangbet1/">pisangbet</a>
 <a href="https://linktr.ee/pisangbet1">pisangbet</a>
 <a href="https://pisangbet.ink/">https://pisangbet.ink/</a>
 <a href="https://pisangtoto.ink/">https://pisangtoto.ink/</a>
