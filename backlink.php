@@ -1,4 +1,11 @@
 <div style="display:none">
+<a href="https://thaiachitech.co.th/product-tact/">https://thaiachitech.co.th/product-tact/</a>
+<a href="https://thaiachitech.co.th/cookie-policy/">https://thaiachitech.co.th/cookie-policy/</a>
+<a href="https://thaidurian.com/obc/">https://thaidurian.com/obc/</a>
+<a href="https://thaidurian.com/top/">https://thaidurian.com/top/</a>
+<a href="https://thaidurian.com/4d/">https://thaidurian.com/4d/</a>
+<a href="https://thaiengineeringgases.com/r290/">https://thaiengineeringgases.com/r290/</a>
+<a href="https://thaiengineeringgases.com/r600a/">https://thaiengineeringgases.com/r600a/</a>
 <a href="http://202.70.136.18/">http://202.70.136.18/</a>
 <a href="https://sbopoker77.com/">https://sbopoker77.com/</a>
 <a href="https://totosuper67.com/">https://totosuper67.com/</a>
