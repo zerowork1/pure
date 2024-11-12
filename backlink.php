@@ -1,4 +1,10 @@
 <div style="display:none">
+<a href="https://www.tcinteliot.com/shop/">https://www.tcinteliot.com/shop/</a>
+<a href="https://www.tcinteliot.com/solutions/">https://www.tcinteliot.com/solutions/</a>
+<a href="https://www.tcinteliot.com/tcintel/">https://www.tcinteliot.com/tcintel/</a>
+<a href="https://www.tentplk.com/">https://www.tentplk.com/</a>
+<a href="https://terol.co.th/">https://terol.co.th/</a>
+<a href="https://www.tgfires.com/">https://www.tgfires.com/</a>
 <a href="https://heylink.me/pisangbetz/">https://heylink.me/pisangbetz/</a>
 <a href="https://thaiachitech.co.th/product-tact/">https://thaiachitech.co.th/product-tact/</a>
 <a href="https://thaiachitech.co.th/cookie-policy/">https://thaiachitech.co.th/cookie-policy/</a>
