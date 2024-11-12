@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://amamarine.co.th/">https://amamarine.co.th/</a>
 <a href="https://makamstories.com/">https://makamstories.com/</a>
 <a href="https://www.tcinteliot.com/shop/">https://www.tcinteliot.com/shop/</a>
 <a href="https://www.tcinteliot.com/solutions/">https://www.tcinteliot.com/solutions/</a>
