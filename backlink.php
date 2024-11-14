@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://diskominfo.kalselprov.go.id/blog/">https://diskominfo.kalselprov.go.id/blog/</a>
 <a href="https://www.enportadas.com/">https://www.enportadas.com/</a>
 <a href="https://islandtours.es/tsuper/">https://islandtours.es/tsuper/</a>
 <a href="https://islandtours.es/top/">https://islandtours.es/top/</a>
