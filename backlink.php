@@ -164,7 +164,6 @@
 <a href="https://kkn.unila.ac.id/obctop/">https://kkn.unila.ac.id/obctop/</a>
 <a href="https://www.bordomodern.com/sbopoker/">https://www.bordomodern.com/sbopoker/</a>
 <a href="https://www.bordomodern.com/totosuper/">https://www.bordomodern.com/totosuper/</a>
-<a href="https://sikatpisangbet.org/">https://sikatpisangbet.org/</a>
 <a href="https://www.thaiviwat.com/wp-content/uploads/">Pisangbet</a>
 <a href="https://www.celessamui.com/">https://www.celessamui.com/</a>
 <a href="http://202.69.191.14/">http://202.69.191.14/</a>
