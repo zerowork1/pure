@@ -1,4 +1,8 @@
 <div style="display:none">
+<a href="https://bordoprestij.com/projelerimiz/">https://bordoprestij.com/projelerimiz/</a>
+<a href="https://bordoprestij.com/galeri/">https://bordoprestij.com/galeri/</a>
+<a href="https://bordoprestij.com/medya/">https://bordoprestij.com/medya/</a>  
+<a href="https://209.74.77.213/">https://209.74.77.213/</a>
 <a href="https://bordo145.com.tr/iletisim/">https://bordo145.com.tr/iletisim/</a>
 <a href="https://bordo145.com.tr/kataloglar/">https://bordo145.com.tr/kataloglar/</a>
 <a href="https://bordo145.com.tr/kurumsal/">https://bordo145.com.tr/kurumsal/</a>
