@@ -10,3 +10,6 @@
 <a href="https://helpforvisa.com/">https://helpforvisa.com/</a>
 <a href="https://amamarine.co.th/">https://amamarine.co.th/</a>
 <a href="https://makamstories.com/">https://makamstories.com/</a>
+<a href="http://202.70.136.18/">http://202.70.136.18/</a>
+<a href="https://prosperengineering.co.th/news/">https://prosperengineering.co.th/news/</a>
+<a href="https://referensipropertyindo.com/totokl/">https://referensipropertyindo.com/totokl/</a>
