@@ -13,3 +13,5 @@
 <a href="http://202.70.136.18/">http://202.70.136.18/</a>
 <a href="https://prosperengineering.co.th/news/">https://prosperengineering.co.th/news/</a>
 <a href="https://referensipropertyindo.com/totokl/">https://referensipropertyindo.com/totokl/</a>
+<a href="https://totosuper.rpg.co.id/">https://totosuper.rpg.co.id/</a>
+<a href="https://totokl.rpg.co.id/">https://totokl.rpg.co.id/</a>
