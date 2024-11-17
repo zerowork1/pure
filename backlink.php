@@ -16,4 +16,9 @@
 <a href="https://totosuper.rpg.co.id/">https://totosuper.rpg.co.id/</a>
 <a href="https://totokl.rpg.co.id/">https://totokl.rpg.co.id/</a>
 <a href="https://islandtours.es/tsuper/">https://islandtours.es/tsuper/</a>
+<a href="https://pisangbet.ink/">https://pisangbet.ink/</a>
+<a href="http://101.50.2.163/">http://101.50.2.163/</a>
+<a href="https://falcom-technology.com/pisbet/">https://falcom-technology.com/pisbet/</a>
+<a href="https://157.245.56.87/">https://157.245.56.87/</a>
+<a href="https://67.205.182.1/">https://67.205.182.1/</a>
 </div>
