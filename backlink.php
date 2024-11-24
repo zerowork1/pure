@@ -17,4 +17,5 @@
 <a href="https://link.kemkes.go.id/">https://link.kemkes.go.id/</a>
 <a href="https://simpel.undip.ac.id/">situs slot gacor</a>
 <a href="https://pamongdesa.kemendagri.go.id/">slot gacor 2024</a>
+<a href="https://kuiz.unesa.ac.id/">https://kuiz.unesa.ac.id/</a>
 </div>
