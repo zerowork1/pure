@@ -1,5 +1,4 @@
 <div style="display:none">
-<a href="https://get-simple.info/">https://get-simple.info/</a>
 <a href="http://pmionline.disnakertrans.cirebonkab.go.id/">http://pmionline.disnakertrans.cirebonkab.go.id/</a>
 <a href="https://bisnisdigital.darmajaya.ac.id/">https://bisnisdigital.darmajaya.ac.id/</a>
 <a href="https://himahi.budiluhur.ac.id/blog/">https://himahi.budiluhur.ac.id/blog/</a>
