@@ -7,6 +7,7 @@
 <a href="https://himahi.budiluhur.ac.id/blog/">https://himahi.budiluhur.ac.id/blog/</a>
 <a href="https://registrasifasyankes.kemkes.go.id/pacarzeus/">https://registrasifasyankes.kemkes.go.id/pacarzeus/</a>
 <a href="https://registrasifasyankes.kemkes.go.id/assets/">https://registrasifasyankes.kemkes.go.id/assets/</a>
+<a href="https://dekastoregaming.id/">https://dekastoregaming.id/</a>
 <a href="https://wisma-sukajadi.kemkes.go.id/berkah/berita/">https://wisma-sukajadi.kemkes.go.id/berkah/berita/</a>
 <a href="https://kampungkeling.org/">https://kampungkeling.org/</a>
 <a href="https://siprima.kpu.go.id/">https://siprima.kpu.go.id/</a>
