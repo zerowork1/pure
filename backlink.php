@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://bkpsdmad.sambas.go.id/gaspol/">https://bkpsdmad.sambas.go.id/gaspol/</a>
+<a href="https://www.gazalauction.com/sewindu/">https://www.gazalauction.com/sewindu/</a>
 <a href="https://ffarmasi.unand.ac.id/dosen/">https://ffarmasi.unand.ac.id/dosen/</a>
 <a href="http://pmionline.disnakertrans.cirebonkab.go.id/">http://pmionline.disnakertrans.cirebonkab.go.id/</a>
 <a href="https://bisnisdigital.darmajaya.ac.id/">https://bisnisdigital.darmajaya.ac.id/</a>
