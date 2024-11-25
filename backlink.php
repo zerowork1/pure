@@ -16,4 +16,5 @@
 <a href="https://link.kemkes.go.id/">https://link.kemkes.go.id/</a>
 <a href="https://kuiz.unesa.ac.id/">https://kuiz.unesa.ac.id/</a>
 <a href="https://eslo.kkp.go.id/">https://eslo.kkp.go.id/</a>
+<a href="https://pertanian.jatimprov.go.id/">https://pertanian.jatimprov.go.id/</a>
 </div>
