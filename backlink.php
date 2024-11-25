@@ -15,4 +15,5 @@
 <a href="https://amdalnet-stg.menlhk.go.id/">https://amdalnet-stg.menlhk.go.id/</a>
 <a href="https://link.kemkes.go.id/">https://link.kemkes.go.id/</a>
 <a href="https://kuiz.unesa.ac.id/">https://kuiz.unesa.ac.id/</a>
+<a href="https://eslo.kkp.go.id/">https://eslo.kkp.go.id/</a>
 </div>
