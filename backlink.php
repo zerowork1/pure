@@ -11,11 +11,9 @@
 <a href="https://dekastoregaming.id/">https://dekastoregaming.id/</a>
 <a href="https://wisma-sukajadi.kemkes.go.id/berkah/berita/">https://wisma-sukajadi.kemkes.go.id/berkah/berita/</a>
 <a href="https://kampungkeling.org/">https://kampungkeling.org/</a>
-<a href="https://siprima.kpu.go.id/">https://siprima.kpu.go.id/</a>
 <a href="https://progresi.co.id/">slot gacor</a>
-<a href="https://amdalnet-stg.menlhk.go.id/">https://amdalnet-stg.menlhk.go.id/</a>
-<a href="https://link.kemkes.go.id/">https://link.kemkes.go.id/</a>
 <a href="https://kuiz.unesa.ac.id/">https://kuiz.unesa.ac.id/</a>
 <a href="https://eslo.kkp.go.id/">https://eslo.kkp.go.id/</a>
 <a href="https://pertanian.jatimprov.go.id/">https://pertanian.jatimprov.go.id/</a>
+<a href="https://manumminen.com/">https://manumminen.com/</a>
 </div>
