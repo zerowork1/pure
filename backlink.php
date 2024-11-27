@@ -13,9 +13,8 @@
 <a href="https://wisma-sukajadi.kemkes.go.id/berkah/berita/">https://wisma-sukajadi.kemkes.go.id/berkah/berita/</a>
 <a href="https://kampungkeling.org/">https://kampungkeling.org/</a>
 <a href="https://progresi.co.id/">slot gacor</a>
-<a href="https://kuiz.unesa.ac.id/">https://kuiz.unesa.ac.id/</a>
-<a href="https://eslo.kkp.go.id/">https://eslo.kkp.go.id/</a>
 <a href="https://pertanian.jatimprov.go.id/">https://pertanian.jatimprov.go.id/</a>
 <a href="https://manumminen.com/">https://manumminen.com/</a>
 <a href="https://artandsignature.com/">https://artandsignature.com/</a>
+<a href="https://gis-bpkad.blitarkota.com/">https://gis-bpkad.blitarkota.com/</a>
 </div>
