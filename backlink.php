@@ -24,4 +24,5 @@
 <a href="https://falcom-technology.com/pisbet/">https://falcom-technology.com/pisbet/</a>
 <a href="https://falcom-technology.com/psgto/">https://falcom-technology.com/psgto/</a>
 <a href="https://pamongdesa.kemendagri.go.id/">https://pamongdesa.kemendagri.go.id/</a>
+<a href="https://totosuper95.com/">https://totosuper95.com/</a>
 </div>
