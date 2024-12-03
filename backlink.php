@@ -21,4 +21,5 @@
 <a href="https://gis-bpkad.blitarkota.com/">https://gis-bpkad.blitarkota.com/</a>
 <a href="https://falcom-technology.com/pisbet/">https://falcom-technology.com/pisbet/</a>
 <a href="https://falcom-technology.com/psgto/">https://falcom-technology.com/psgto/</a>
+<a href="https://pamongdesa.kemendagri.go.id/">https://pamongdesa.kemendagri.go.id/</a>
 </div>
