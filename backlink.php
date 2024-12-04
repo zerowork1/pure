@@ -33,4 +33,6 @@
 <a href="https://falcom-technology.com/psgto/">https://falcom-technology.com/psgto/</a>
 <a href="https://pamongdesa.kemendagri.go.id/">https://pamongdesa.kemendagri.go.id/</a>
 <a href="https://totosuper95.com/">https://totosuper95.com/</a>
+<a href="https://pisang.rpg.co.id/">https://pisang.rpg.co.id/</a>
+<a href="https://pisangtoto.rpg.co.id/">https://pisangtoto.rpg.co.id/</a>
 </div>
