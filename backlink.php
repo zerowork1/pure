@@ -1,4 +1,5 @@
 <div style="display:none">
+ <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
 <a href="https://ejurnal.unim.ac.id/">https://ejurnal.unim.ac.id/</a>
 <a href="https://simpad.pamekasankab.go.id/">https://simpad.pamekasankab.go.id/</a>
 <a href="https://usaidwildlifeasia.org/">https://usaidwildlifeasia.org/</a>
