@@ -1,11 +1,12 @@
 <div style="display:none">
- <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
+<a href="https://mynida.stainidaeladabi.ac.id/top/">https://mynida.stainidaeladabi.ac.id/top/</a>
+<a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
 <a href="https://ejurnal.unim.ac.id/">https://ejurnal.unim.ac.id/</a>
 <a href="https://simpad.pamekasankab.go.id/">https://simpad.pamekasankab.go.id/</a>
 <a href="https://usaidwildlifeasia.org/">https://usaidwildlifeasia.org/</a>
 <a href="https://lifeontwitter.com/">https://lifeontwitter.com/</a>  
 <a href="https://hipdroprecords.com/">https://hipdroprecords.com/</a>  
- <a href="https://donostikluba.com/">https://donostikluba.com/</a>  
+<a href="https://donostikluba.com/">https://donostikluba.com/</a>  
 <a href="https://monicabelluccifan.com/">https://monicabelluccifan.com/</a>
 <a href="https://plantatuarbol.com/">https://plantatuarbol.com/</a> 
 <a href="https://infolaras.bpbd.garutkab.go.id/">https://infolaras.bpbd.garutkab.go.id/</a>
