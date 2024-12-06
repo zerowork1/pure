@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://apdol.sukabumikab.go.id/">https://apdol.sukabumikab.go.id/</a>
 <a href="https://netmon.radenintan.ac.id/obctop/">https://netmon.radenintan.ac.id/obctop/</a>
 <a href="https://sistemasi.ftik.unisi.ac.id/">https://sistemasi.ftik.unisi.ac.id/</a>
 <a href="https://ejournalfarmapedia.sttif.ac.id/">https://ejournalfarmapedia.sttif.ac.id/</a>
