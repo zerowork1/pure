@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://sistemasi.ftik.unisi.ac.id/">https://sistemasi.ftik.unisi.ac.id/</a>
 <a href="https://ejournalfarmapedia.sttif.ac.id/">https://ejournalfarmapedia.sttif.ac.id/</a>
 <a href="https://e-journal.iaknambon.ac.id/">https://e-journal.iaknambon.ac.id/</a>
 <a href="https://mahasiswa.unpacti.ac.id/">https://mahasiswa.unpacti.ac.id/</a>
