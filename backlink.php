@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://mahasiswa.unpacti.ac.id/">https://mahasiswa.unpacti.ac.id/</a>
 <a href="https://mynida.stainidaeladabi.ac.id/top/">https://mynida.stainidaeladabi.ac.id/top/</a>
 <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
 <a href="https://ejurnal.unim.ac.id/">https://ejurnal.unim.ac.id/</a>
