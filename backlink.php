@@ -7,7 +7,7 @@
 <a href="https://mynida.stainidaeladabi.ac.id/top/">https://mynida.stainidaeladabi.ac.id/top/</a>
 <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
 <a href="https://ejurnal.unim.ac.id/">https://ejurnal.unim.ac.id/</a>
-<a href="https://simpad.pamekasankab.go.id/">https://simpad.pamekasankab.go.id/</a>
+<a href="https://sekda.pamekasankab.go.id/">https://sekda.pamekasankab.go.id/</a>
 <a href="https://usaidwildlifeasia.org/">https://usaidwildlifeasia.org/</a>
 <a href="https://lifeontwitter.com/">https://lifeontwitter.com/</a>  
 <a href="https://hipdroprecords.com/">https://hipdroprecords.com/</a>  
