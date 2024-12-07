@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://pkmteja.pamekasankab.go.id/">https://pkmteja.pamekasankab.go.id/</a>
 <a href="https://dinaspendidikan.pamekasankab.go.id/">https://dinaspendidikan.pamekasankab.go.id/</a>
 <a href="https://ffarmasi.unand.ac.id/jarum/">https://ffarmasi.unand.ac.id/jarum/</a>
 <a href="https://apdol.sukabumikab.go.id/">https://apdol.sukabumikab.go.id/</a>
