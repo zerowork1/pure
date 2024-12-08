@@ -1,6 +1,10 @@
 <div style="display:none">
 <a href="https://simahal.fk.ulm.ac.id/blog/tklari/">https://simahal.fk.ulm.ac.id/blog/tklari/</a>
 <a href="https://simahal.fk.ulm.ac.id/blog/top/">https://simahal.fk.ulm.ac.id/blog/top/</a>
+<a href="https://referensipropertyindo.com/totokl/">https://referensipropertyindo.com/totokl/</a>
+<a href="https://totokl98.com/">https://totokl98.com/</a>
+<a href="https://totosuper95.com/">https://totosuper95.com/</a>
+<a href="https://bukaantotokl.com/">https://bukaantotokl.com/</a>
 <a href="https://mynida.stainidaeladabi.ac.id/top/">https://mynida.stainidaeladabi.ac.id/top/</a>
 <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
 <a href="https://ejurnal.unim.ac.id/">https://ejurnal.unim.ac.id/</a>
@@ -32,7 +36,6 @@
 <a href="https://falcom-technology.com/pisbet/">https://falcom-technology.com/pisbet/</a>
 <a href="https://falcom-technology.com/psgto/">https://falcom-technology.com/psgto/</a>
 <a href="https://pamongdesa.kemendagri.go.id/">https://pamongdesa.kemendagri.go.id/</a>
-<a href="https://totosuper95.com/">https://totosuper95.com/</a>
 <a href="https://pisang.rpg.co.id/">https://pisang.rpg.co.id/</a>
 <a href="https://pisangtoto.rpg.co.id/">https://pisangtoto.rpg.co.id/</a>
 </div>
