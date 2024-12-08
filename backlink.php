@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://satpolpp.pamekasankab.go.id/">https://satpolpp.pamekasankab.go.id/</a>
 <a href="http://absen.bbpomserang.com/">http://absen.bbpomserang.com/</a>
 <a href="https://simahal.fk.ulm.ac.id/blog/tklari/">https://simahal.fk.ulm.ac.id/blog/tklari/</a>
 <a href="https://simahal.fk.ulm.ac.id/blog/top/">https://simahal.fk.ulm.ac.id/blog/top/</a>
