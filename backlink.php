@@ -1,12 +1,5 @@
 <div style="display:none">
-<a href="https://pkmteja.pamekasankab.go.id/">https://pkmteja.pamekasankab.go.id/</a>
-<a href="https://dinaspendidikan.pamekasankab.go.id/">https://dinaspendidikan.pamekasankab.go.id/</a>
-<a href="https://ffarmasi.unand.ac.id/jarum/">https://ffarmasi.unand.ac.id/jarum/</a>
-<a href="https://apdol.sukabumikab.go.id/">https://apdol.sukabumikab.go.id/</a>
-<a href="https://sistemasi.ftik.unisi.ac.id/">https://sistemasi.ftik.unisi.ac.id/</a>
-<a href="https://ejournalfarmapedia.sttif.ac.id/">https://ejournalfarmapedia.sttif.ac.id/</a>
-<a href="https://e-journal.iaknambon.ac.id/">https://e-journal.iaknambon.ac.id/</a>
-<a href="https://mahasiswa.unpacti.ac.id/">https://mahasiswa.unpacti.ac.id/</a>
+<a href="https://simahal.fk.ulm.ac.id/blog/top/">https://simahal.fk.ulm.ac.id/blog/top/</a>
 <a href="https://mynida.stainidaeladabi.ac.id/top/">https://mynida.stainidaeladabi.ac.id/top/</a>
 <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
 <a href="https://ejurnal.unim.ac.id/">https://ejurnal.unim.ac.id/</a>
@@ -22,11 +15,7 @@
 <a href="http://manfaat.pesantren-insan-pratama.sch.id/">http://manfaat.pesantren-insan-pratama.sch.id/</a>
 <a href="https://dfo.kemkes.go.id/">https://dfo.kemkes.go.id/</a>
 <a href="https://bkpsdmad.sambas.go.id/gaspol/">https://bkpsdmad.sambas.go.id/gaspol/</a>
-<a href="https://www.gazalauction.com/sewindu/">https://www.gazalauction.com/sewindu/</a>
-<a href="https://ffarmasi.unand.ac.id/dosen/">https://ffarmasi.unand.ac.id/dosen/</a>
-<a href="http://pmionline.disnakertrans.cirebonkab.go.id/">http://pmionline.disnakertrans.cirebonkab.go.id/</a>
 <a href="https://bisnisdigital.darmajaya.ac.id/">https://bisnisdigital.darmajaya.ac.id/</a>
-<a href="https://himahi.budiluhur.ac.id/blog/">https://himahi.budiluhur.ac.id/blog/</a>
 <a href="https://registrasifasyankes.kemkes.go.id/pacarzeus/">https://registrasifasyankes.kemkes.go.id/pacarzeus/</a>
 <a href="https://registrasifasyankes.kemkes.go.id/assets/">https://registrasifasyankes.kemkes.go.id/assets/</a>
 <a href="https://dekastoregaming.id/">https://dekastoregaming.id/</a>
