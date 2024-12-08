@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://simahal.fk.ulm.ac.id/blog/tklari/">https://simahal.fk.ulm.ac.id/blog/tklari/</a>
 <a href="https://simahal.fk.ulm.ac.id/blog/top/">https://simahal.fk.ulm.ac.id/blog/top/</a>
 <a href="https://mynida.stainidaeladabi.ac.id/top/">https://mynida.stainidaeladabi.ac.id/top/</a>
 <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
