@@ -10,6 +10,7 @@
 <a href="https://totosuper95.com/">https://totosuper95.com/</a>
 <a href="https://sbopoker69.com/">https://sbopoker69.com/</a>
 <a href="https://bukaantotokl.com/">https://bukaantotokl.com/</a>
+<a href="https://metadata.pamekasankab.go.id/">https://metadata.pamekasankab.go.id/</a>
 <a href="https://mynida.stainidaeladabi.ac.id/top/">https://mynida.stainidaeladabi.ac.id/top/</a>
 <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
 <a href="https://ejurnal.unim.ac.id/">https://ejurnal.unim.ac.id/</a>
