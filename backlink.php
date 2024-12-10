@@ -2,7 +2,7 @@
 <a href="https://jurnalfuda.iainkediri.ac.id/">https://jurnalfuda.iainkediri.ac.id/</a>
 <a href="https://satpolpp.pamekasankab.go.id/">https://satpolpp.pamekasankab.go.id/</a>
 <a href="http://absen.bbpomserang.com/">http://absen.bbpomserang.com/</a>
-  <a href="https://ftik.uinsatu.ac.id/apps/hehe/">https://ftik.uinsatu.ac.id/apps/hehe/</a>
+<a href="https://ftik.uinsatu.ac.id/apps/hehe/">https://ftik.uinsatu.ac.id/apps/hehe/</a>
 <a href="https://simahal.fk.ulm.ac.id/blog/tklari/">https://simahal.fk.ulm.ac.id/blog/tklari/</a>
 <a href="https://simahal.fk.ulm.ac.id/blog/top/">https://simahal.fk.ulm.ac.id/blog/top/</a>
 <a href="https://referensipropertyindo.com/totokl/">https://referensipropertyindo.com/totokl/</a>
