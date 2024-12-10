@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://slotgacorhariini.dinsos.langsakota.go.id/">slot gacor hari ini</a>
 <a href="https://jurnalfuda.iainkediri.ac.id/">https://jurnalfuda.iainkediri.ac.id/</a>
 <a href="https://satpolpp.pamekasankab.go.id/">https://satpolpp.pamekasankab.go.id/</a>
 <a href="http://absen.bbpomserang.com/">http://absen.bbpomserang.com/</a>
