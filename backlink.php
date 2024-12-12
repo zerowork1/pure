@@ -1,5 +1,9 @@
 <div style="display:none">
 <a href="https://slotgacorhariini.dinsos.langsakota.go.id/">slot gacor hari ini</a>
+  <a href="https://umart.um.ac.id/">https://umart.um.ac.id/</a>
+  <a href="https://cakrajb.um.ac.id/">https://cakrajb.um.ac.id/</a>
+  <a href="https://hangtuah.ac.id/hehe/">https://hangtuah.ac.id/hehe/</a>
+  <a href="https://skadik502.tni-au.mil.id/">https://skadik502.tni-au.mil.id/</a>
 <a href="https://jurnalfuda.iainkediri.ac.id/">https://jurnalfuda.iainkediri.ac.id/</a>
 <a href="https://satpolpp.pamekasankab.go.id/">https://satpolpp.pamekasankab.go.id/</a>
 <a href="http://absen.bbpomserang.com/">http://absen.bbpomserang.com/</a>
