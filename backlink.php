@@ -5,6 +5,7 @@
 <a href="https://jurnal.polsri.ac.id/">https://jurnal.polsri.ac.id/</a>
 <a href="http://siakad.probis.um.ac.id/">http://siakad.probis.um.ac.id/</a>
 <a href="https://peradaban.ac.id/">https://peradaban.ac.id/</a>
+<a href="https://checklist-tsel.telkomsigma.co.id/">https://checklist-tsel.telkomsigma.co.id/</a>
 <a href="https://qass.hangtuah.ac.id/topthai/">https://qass.hangtuah.ac.id/topthai/</a>
 <a href="https://qass.hangtuah.ac.id/supertoto/">https://qass.hangtuah.ac.id/supertoto/</a>
 <a href="https://slotgacorhariini.dinsos.langsakota.go.id/">slot gacor hari ini</a>
