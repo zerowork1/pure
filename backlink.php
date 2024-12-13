@@ -6,9 +6,6 @@
 <a href="http://siakad.probis.um.ac.id/">http://siakad.probis.um.ac.id/</a>
 <a href="https://peradaban.ac.id/">https://peradaban.ac.id/</a>
 <a href="https://checklist-tsel.telkomsigma.co.id/">https://checklist-tsel.telkomsigma.co.id/</a>
-<a href="https://qass.hangtuah.ac.id/topthai/">https://qass.hangtuah.ac.id/topthai/</a>
-<a href="https://qass.hangtuah.ac.id/supertoto/">https://qass.hangtuah.ac.id/supertoto/</a>
-<a href="https://slotgacorhariini.dinsos.langsakota.go.id/">slot gacor hari ini</a>
 <a href="https://umart.um.ac.id/">https://umart.um.ac.id/</a>
 <a href="https://cakrajb.um.ac.id/">https://cakrajb.um.ac.id/</a>
 <a href="https://hangtuah.ac.id/hehe/">https://hangtuah.ac.id/hehe/</a>
@@ -44,7 +41,6 @@
 <a href="https://registrasifasyankes.kemkes.go.id/pacarzeus/">https://registrasifasyankes.kemkes.go.id/pacarzeus/</a>
 <a href="https://registrasifasyankes.kemkes.go.id/assets/">https://registrasifasyankes.kemkes.go.id/assets/</a>
 <a href="https://dekastoregaming.id/">https://dekastoregaming.id/</a>
-<a href="https://wisma-sukajadi.kemkes.go.id/berkah/berita/">https://wisma-sukajadi.kemkes.go.id/berkah/berita/</a>
 <a href="https://kampungkeling.org/">https://kampungkeling.org/</a>
 <a href="https://kawahputih.org/">https://kawahputih.org/</a>
 <a href="https://regutembakdalam.org/">https://regutembakdalam.org/</a>
