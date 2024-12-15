@@ -3,7 +3,7 @@
 <a href="https://sipatas.sabangkota.go.id/function/PATDA-V1/">https://sipatas.sabangkota.go.id/function/PATDA-V1/</a>
 <a href="https://apdol.sukabumikab.go.id/blog/misterhoki/">https://apdol.sukabumikab.go.id/blog/misterhoki/</a>
 <a href="https://infolaras.bpbd.garutkab.go.id/">https://infolaras.bpbd.garutkab.go.id/</a>
-<a href="https://heylink.me/totosuperslot/">totosuper</a>
+<a href="https://heylink.me/totosuper-login/">totosuper</a>
 <a href="https://jurnal.polsri.ac.id/">https://jurnal.polsri.ac.id/</a>
 <a href="http://siakad.probis.um.ac.id/">http://siakad.probis.um.ac.id/</a>
 <a href="https://peradaban.ac.id/">https://peradaban.ac.id/</a>
