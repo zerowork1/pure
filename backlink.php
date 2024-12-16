@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://fi.uinsyahada.ac.id/blog/klari/">https://fi.uinsyahada.ac.id/blog/klari/</a>
 <a href="http://lms.probis.um.ac.id/">slot pacar zeus</a>
 <a href="https://data.madiunkab.go.id/hehe/">https://data.madiunkab.go.id/hehe/</a>
 <a href="https://sipatas.sabangkota.go.id/function/PATDA-V1/">https://sipatas.sabangkota.go.id/function/PATDA-V1/</a>
