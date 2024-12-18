@@ -51,6 +51,7 @@
 <a href="https://registrasifasyankes.kemkes.go.id/assets/">https://registrasifasyankes.kemkes.go.id/assets/</a>
 <a href="https://dekastoregaming.id/">https://dekastoregaming.id/</a>
 <a href="https://kampungkeling.org/">https://kampungkeling.org/</a>
+<a href="https://umasssoils.com/">https://umasssoils.com/</a>
 <a href="https://kawahputih.org/">https://kawahputih.org/</a>
 <a href="https://progresi.co.id/">slot gacor</a>
 <a href="https://pertanian.jatimprov.go.id/">https://pertanian.jatimprov.go.id/</a>
