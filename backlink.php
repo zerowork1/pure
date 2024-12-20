@@ -10,7 +10,7 @@
 <a href="https://infolaras.bpbd.garutkab.go.id/">https://infolaras.bpbd.garutkab.go.id/</a>
 <a href="https://www.enportadas.com/">https://www.enportadas.com/</a>
 <a href="https://heylink.me/totosuper-login/">https://heylink.me/totosuper-login/</a>
-<a href="https://regutembakdalam.org/">totosuper</a>
+<a href="https://regutembakdalam.org/">https://regutembakdalam.org/</a>
 <a href="https://arthistoryworlds.org/">https://arthistoryworlds.org/</a>
 <a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a>
 <a href="https://fi.uinsyahada.ac.id/blog/ttsuper/">https://fi.uinsyahada.ac.id/blog/ttsuper/</a>
