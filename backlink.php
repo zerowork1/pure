@@ -1,5 +1,5 @@
 <div style="display:none">
-<a href="http://cyanophora.rutgers.edu/">http://cyanophora.rutgers.edu/</a>
+<a href="https://mrtg.menpan.go.id/">https://mrtg.menpan.go.id/</a>
 <a href="https://heylink.me/totokudalari/">https://heylink.me/totokudalari/</a>
 <a href="https://trilogi.ac.id/blog/">https://trilogi.ac.id/blog/</a>
 <a href="https://fi.uinsyahada.ac.id/blog/klari/">https://fi.uinsyahada.ac.id/blog/klari/</a>
