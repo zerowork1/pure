@@ -1,5 +1,6 @@
 <div style="display:none">
-  <a href="https://sipatuh.pamekasankab.go.id/">https://sipatuh.pamekasankab.go.id/</a>
+<a href="https://pkmwaru.pamekasankab.go.id/">https://pkmwaru.pamekasankab.go.id/</a>
+<a href="https://sipatuh.pamekasankab.go.id/">https://sipatuh.pamekasankab.go.id/</a>
 <a href="https://pengaduan.menlhk.go.id/">https://pengaduan.menlhk.go.id/</a>
 <a href="https://mrtg.menpan.go.id/">https://mrtg.menpan.go.id/</a>
 <a href="https://heylink.me/totokudalari/">https://heylink.me/totokudalari/</a>
