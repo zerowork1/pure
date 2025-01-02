@@ -73,4 +73,5 @@
 <a href="https://www.rpg.co.id/pisto/">https://www.rpg.co.id/pisto/</a>
 <a href="https://statisticalmisconceptions.com/">https://statisticalmisconceptions.com/</a>
 <a href="https://www.siambig.com/">https://www.siambig.com/</a>
+<a href="https://www.vacationhousedestinations.com/">https://www.vacationhousedestinations.com/</a>
 </div>
