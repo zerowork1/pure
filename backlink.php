@@ -71,4 +71,6 @@
 <a href="https://pamongdesa.kemendagri.go.id/">https://pamongdesa.kemendagri.go.id/</a>
 <a href="https://www.rpg.co.id/pisangbet/">https://www.rpg.co.id/pisangbet/</a>
 <a href="https://www.rpg.co.id/pisto/">https://www.rpg.co.id/pisto/</a>
+<a href="https://statisticalmisconceptions.com/">https://statisticalmisconceptions.com/</a>
+<a href="https://www.siambig.com/">https://www.siambig.com/</a>
 </div>
