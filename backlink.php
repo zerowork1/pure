@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://gudangpn.kemkes.go.id/">Slot Gacor 777</a>
 <a href="https://kehadiran.kemkes.go.id/">https://kehadiran.kemkes.go.id/</a>
 <a href="https://mrv.kaltimprov.go.id/">https://mrv.kaltimprov.go.id/</a>
 <a href="https://integrasi-data.kemkes.go.id/">slot gacor hari ini</a>
