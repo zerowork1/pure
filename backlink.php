@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://kehadiran.kemkes.go.id/">https://kehadiran.kemkes.go.id/</a>
 <a href="https://mrv.kaltimprov.go.id/">https://mrv.kaltimprov.go.id/</a>
 <a href="https://integrasi-data.kemkes.go.id/">slot gacor hari ini</a>
 <a href="https://siporsat.kemkes.go.id/">https://siporsat.kemkes.go.id/</a>
