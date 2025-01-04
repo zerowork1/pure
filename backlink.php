@@ -79,4 +79,5 @@
 <a href="https://www.siambig.com/">https://www.siambig.com/</a>
 <a href="https://www.vacationhousedestinations.com/">https://www.vacationhousedestinations.com/</a>
 <a href="https://www.indoorgardensupplies.com/">https://www.indoorgardensupplies.com/</a>
+<a href="https://www.veganyogalife.com/">https://www.veganyogalife.com/</a>
 </div>
