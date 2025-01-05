@@ -6,6 +6,7 @@
 <a href="https://integrasi-data.kemkes.go.id/">slot gacor hari ini</a>
 <a href="https://siporsat.kemkes.go.id/">https://siporsat.kemkes.go.id/</a>
 <a href="https://prosperengineering.co.th/news/">https://prosperengineering.co.th/news/</a>
+<a href="https://adirach.com/">https://adirach.com/</a>
 <a href="https://pkmwaru.pamekasankab.go.id/">https://pkmwaru.pamekasankab.go.id/</a>
 <a href="https://sipatuh.pamekasankab.go.id/">https://sipatuh.pamekasankab.go.id/</a>
 <a href="https://pengaduan.menlhk.go.id/">https://pengaduan.menlhk.go.id/</a>
