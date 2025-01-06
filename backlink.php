@@ -3,6 +3,7 @@
 <a href="https://iconists.eng.unila.ac.id/">https://iconists.eng.unila.ac.id/</a>
 <a href="https://jdih.menpan.go.id/">https://jdih.menpan.go.id/</a>
 <a href="https://gudangpn.kemkes.go.id/">Slot Gacor 777</a>
+<a href="https://simitra.menpan.go.id/">https://simitra.menpan.go.id/</a>
 <a href="https://mrv.kaltimprov.go.id/">https://mrv.kaltimprov.go.id/</a>
 <a href="https://integrasi-data.kemkes.go.id/">slot gacor hari ini</a>
 <a href="https://siporsat.kemkes.go.id/">https://siporsat.kemkes.go.id/</a>
