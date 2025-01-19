@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="http://semnas.radenfatah.ac.id/">http://semnas.radenfatah.ac.id/</a>
 <a href="https://ejournal.stakatnpontianak.ac.id/">https://ejournal.stakatnpontianak.ac.id/</a>
 <a href="https://www.stakatnpontianak.ac.id/fly/">https://www.stakatnpontianak.ac.id/fly/</a>
 <a href="https://getuk.bpslampung.id/assets/">https://getuk.bpslampung.id/assets/</a>
