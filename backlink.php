@@ -2,6 +2,7 @@
 <a href="https://keppkn.kemkes.go.id/vendor/composer/sbopoker/">Sbopoker</a>
 <a href="https://yankes.kemkes.go.id/app/">Sbopoker</a>
 <a href="https://e-retribusipasar.semarangkab.go.id/vendor/sbop/">Sbopoker</a>
+<a href="https://e-retribusipasar.semarangkab.go.id/page/">https://e-retribusipasar.semarangkab.go.id/page/</a>
 <a href="https://api-ina-crc.kemkes.go.id/">https://api-ina-crc.kemkes.go.id/</a>
 <a href="https://iconists.eng.unila.ac.id/">https://iconists.eng.unila.ac.id/</a>
 <a href="https://totokl85.com/">https://totokl98.com/</a>
