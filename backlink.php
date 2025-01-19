@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="http://ejurnal.stimata.ac.id/classes/">http://ejurnal.stimata.ac.id/classes/</a>
 <a href="https://grawis-smg.com/fly/">https://grawis-smg.com/fly/</a>
 <a href="https://simfoni.fk.unand.ac.id/duar/">https://simfoni.fk.unand.ac.id/duar/</a>
 <a href="https://ffarmasi.unand.ac.id/fly/">https://ffarmasi.unand.ac.id/fly/</a>
