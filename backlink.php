@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://journal.univpancasila.ac.id/fly/">https://journal.univpancasila.ac.id/fly/</a>
 <a href="https://conference.univpancasila.ac.id/fly/">https://conference.univpancasila.ac.id/fly/</a>
 <a href="http://jifi.farmasi.univpancasila.ac.id/fly/">http://jifi.farmasi.univpancasila.ac.id/fly/</a>
 <a href="https://s2kipa.fkip.unila.ac.id/wp-content/fly/">https://s2kipa.fkip.unila.ac.id/wp-content/fly/</a>
