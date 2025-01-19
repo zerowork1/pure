@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://ejournal.stakatnpontianak.ac.id/">https://ejournal.stakatnpontianak.ac.id/</a>
+<a href="https://www.stakatnpontianak.ac.id/fly/">https://www.stakatnpontianak.ac.id/fly/</a>
 <a href="https://getuk.bpslampung.id/assets/">https://getuk.bpslampung.id/assets/</a>
 <a href="https://journal.uinjkt.ac.id/public/">https://journal.uinjkt.ac.id/public/</a>
 <a href="https://stt-su.ac.id/fly/index.php/">https://stt-su.ac.id/fly/index.php/</a>
