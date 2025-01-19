@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ffarmasi.unand.ac.id/fly/">https://ffarmasi.unand.ac.id/fly/</a>
 <a href="https://mhjms.widyagamahusada.ac.id/fly/">https://mhjms.widyagamahusada.ac.id/fly/</a>
 <a href="https://jurnal.aakpekalongan.ac.id/fly/">https://jurnal.aakpekalongan.ac.id/fly/</a>
 <a href="http://semnas.radenfatah.ac.id/">http://semnas.radenfatah.ac.id/</a>
