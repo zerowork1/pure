@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ejurnal.ars.ac.id/">https://ejurnal.ars.ac.id/</a>
 <a href="https://jurnal.untan.ac.id/umum/">https://jurnal.untan.ac.id/umum/</a>
 <a href="http://ojs.filo.unt.edu.ar/umum/">http://ojs.filo.unt.edu.ar/umum/</a>
 <a href="https://adirach.com/assets/">https://adirach.com/assets/</a>
