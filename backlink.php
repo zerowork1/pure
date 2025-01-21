@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://uikapress.uika-bogor.ac.id/wp-content/uploads/fly/">https://uikapress.uika-bogor.ac.id/wp-content/uploads/fly/</a>
 <a href="https://ejournal.itskesicme.ac.id/">https://ejournal.itskesicme.ac.id/</a>
 <a href="https://digilib.itskesicme.ac.id/">https://digilib.itskesicme.ac.id/</a>
 <a href="https://ojs.stakrri.ac.id/">https://ojs.stakrri.ac.id/</a>
