@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ar-raniry.ac.id/paito/">https://ar-raniry.ac.id/paito/</a>
 <a href="https://tari.fkip.unila.ac.id/wp-content/uploads/paito/">https://tari.fkip.unila.ac.id/wp-content/uploads/paito/</a>
 <a href="https://ejurnal.unisri.ac.id/">https://ejurnal.unisri.ac.id/</a>
 <a href="https://arimbi.ukdc.ac.id/">https://arimbi.ukdc.ac.id/</a>
