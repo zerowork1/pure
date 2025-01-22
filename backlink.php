@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ejurnal.unisri.ac.id/">https://ejurnal.unisri.ac.id/</a>
 <a href="https://arimbi.ukdc.ac.id/">https://arimbi.ukdc.ac.id/</a>
 <a href="https://elearning.utmmataram.ac.id/">https://elearning.utmmataram.ac.id/</a>
 <a href="https://eagenda.batangkab.go.id/fly/">https://eagenda.batangkab.go.id/fly/</a>
