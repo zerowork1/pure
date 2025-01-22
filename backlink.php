@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://wisata.kapuashulukab.go.id/">https://wisata.kapuashulukab.go.id/</a>
 <a href="https://fib.unand.ac.id/paito/">https://fib.unand.ac.id/paito/</a>
 <a href="https://uikapress.uika-bogor.ac.id/wp-content/uploads/fly/">https://uikapress.uika-bogor.ac.id/wp-content/uploads/fly/</a>
 <a href="https://ejournal.itskesicme.ac.id/">https://ejournal.itskesicme.ac.id/</a>
