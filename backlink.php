@@ -67,7 +67,6 @@
 <a href="https://mrv.kaltimprov.go.id/">https://mrv.kaltimprov.go.id/</a>
 <a href="https://integrasi-data.kemkes.go.id/">slot gacor hari ini</a>
 <a href="https://siporsat.kemkes.go.id/">https://siporsat.kemkes.go.id/</a>
-<a href="https://prosperengineering.co.th/news/">https://prosperengineering.co.th/news/</a>
 <a href="https://adirach.com/">https://adirach.com/</a>
 <a href="https://akuntansi.darmajaya.ac.id/">https://akuntansi.darmajaya.ac.id/</a>
 <a href="https://pkmwaru.pamekasankab.go.id/">https://pkmwaru.pamekasankab.go.id/</a>
