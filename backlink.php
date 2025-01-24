@@ -53,14 +53,12 @@
 <a href="https://api-ina-crc.kemkes.go.id/">https://api-ina-crc.kemkes.go.id/</a>
 <a href="https://iconists.eng.unila.ac.id/">https://iconists.eng.unila.ac.id/</a>
 <a href="https://totokl85.com/">https://totokl98.com/</a>
-<a href="https://gudangpn.kemkes.go.id/">Slot Gacor 777</a>
 <a href="https://totosuper76.com/">https://totosuper76.com/</a>
 <a href="https://sbopoker69.com/">https://sbopoker69.com/</a>
 <a href="https://bukaantotokl.com/">https://bukaantotokl.com/</a>
 <a href="https://www.enportadas.com/">https://www.enportadas.com/</a>
 <a href="https://wifeemade.com/">https://wifeemade.com/</a>
 <a href="https://adirach.com/">https://adirach.com/</a>
-<a href="https://akuntansi.darmajaya.ac.id/">https://akuntansi.darmajaya.ac.id/</a>
 <a href="https://heylink.me/totokudalari/">https://heylink.me/totokudalari/</a>
 <a href="https://trilogi.ac.id/blog/">https://trilogi.ac.id/blog/</a>
 <a href="http://lms.probis.um.ac.id/">slot pacar zeus</a>
