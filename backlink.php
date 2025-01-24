@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ts-yankes.kemkes.go.id/dok/">slot gacor</a>
 <a href="https://akademiktesvik.usak.edu.tr/lengkap/">https://akademiktesvik.usak.edu.tr/lengkap/</a>
 <a href="https://journal.unram.ac.id/land/">https://journal.unram.ac.id/land/</a>
 <a href="https://journal-stiehidayatullah.ac.id/lengkap/">https://journal-stiehidayatullah.ac.id/lengkap/</a>
