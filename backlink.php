@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://hajisehat.kemkes.go.id/lab/">slot gacor</a>
 <a href="https://sikelim.kemkes.go.id/server/">slot online</a>
 <a href="https://ts-yankes.kemkes.go.id/dok/">slot gacor</a>
 <a href="https://akademiktesvik.usak.edu.tr/lengkap/">https://akademiktesvik.usak.edu.tr/lengkap/</a>
