@@ -1,6 +1,7 @@
 <div style="display:none">
 <a href="https://kemenkesbootcamp.kemkes.go.id/bola/">https://kemenkesbootcamp.kemkes.go.id/bola/</a>
 <a href="https://kemenkesbootcamp.kemkes.go.id/phk/">https://kemenkesbootcamp.kemkes.go.id/phk/</a>
+<a href="https://joydigitalmag.com/">https://joydigitalmag.com/</a>
 <a href="https://hajisehat.kemkes.go.id/lab/index.html">slot gacor</a>
 <a href="https://sikelim.kemkes.go.id/server/">slot online</a>
 <a href="https://ts-yankes.kemkes.go.id/dok/">slot gacor</a>
