@@ -98,7 +98,6 @@
 <a href="https://plantatuarbol.com/">https://plantatuarbol.com/</a> 
 <a href="https://bkpsdmad.sambas.go.id/gaspol/">https://bkpsdmad.sambas.go.id/gaspol/</a>
 <a href="https://bisnisdigital.darmajaya.ac.id/">https://bisnisdigital.darmajaya.ac.id/</a>
-<a href="https://dekastoregaming.id/">https://dekastoregaming.id/</a>
 <a href="https://kampungkeling.org/">https://kampungkeling.org/</a>
 <a href="https://umasssoils.com/">https://umasssoils.com/</a>
 <a href="https://kawahputih.org/">https://kawahputih.org/</a>
