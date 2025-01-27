@@ -5,6 +5,7 @@
 <a href="https://hajisehat.kemkes.go.id/lab/index.html">slot gacor</a>
 <a href="https://sikelim.kemkes.go.id/server/">slot online</a>
 <a href="https://ts-yankes.kemkes.go.id/dok/">slot gacor</a>
+<a href="https://totosuper84.com/">https://totosuper84.com/</a>
 <a href="https://akademiktesvik.usak.edu.tr/lengkap/">https://akademiktesvik.usak.edu.tr/lengkap/</a>
 <a href="https://journal.unram.ac.id/land/">https://journal.unram.ac.id/land/</a>
 <a href="https://journal-stiehidayatullah.ac.id/lengkap/">https://journal-stiehidayatullah.ac.id/lengkap/</a>
@@ -63,7 +64,6 @@
 <a href="https://api-ina-crc.kemkes.go.id/">https://api-ina-crc.kemkes.go.id/</a>
 <a href="https://iconists.eng.unila.ac.id/">https://iconists.eng.unila.ac.id/</a>
 <a href="https://totokl85.com/">https://totokl98.com/</a>
-<a href="https://totosuper76.com/">https://totosuper76.com/</a>
 <a href="https://sbopoker69.com/">https://sbopoker69.com/</a>
 <a href="https://bukaantotokl.com/">https://bukaantotokl.com/</a>
 <a href="https://www.enportadas.com/">https://www.enportadas.com/</a>
