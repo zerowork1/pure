@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://smartdinkes.slemankab.go.id/portal/">slot gacor</a>
 <a href="https://kemenkesbootcamp.kemkes.go.id/bola/">https://kemenkesbootcamp.kemkes.go.id/bola/</a>
 <a href="https://kemenkesbootcamp.kemkes.go.id/phk/">https://kemenkesbootcamp.kemkes.go.id/phk/</a>
 <a href="https://joydigitalmag.com/">https://joydigitalmag.com/</a>
