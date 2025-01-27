@@ -6,6 +6,7 @@
 <a href="https://sikelim.kemkes.go.id/server/">slot online</a>
 <a href="https://ts-yankes.kemkes.go.id/dok/">slot gacor</a>
 <a href="https://totosuper84.com/">https://totosuper84.com/</a>
+<a href="https://maesodgemssale.com/news">https://maesodgemssale.com/news</a>
 <a href="https://akademiktesvik.usak.edu.tr/lengkap/">https://akademiktesvik.usak.edu.tr/lengkap/</a>
 <a href="https://journal.unram.ac.id/land/">https://journal.unram.ac.id/land/</a>
 <a href="https://journal-stiehidayatullah.ac.id/lengkap/">https://journal-stiehidayatullah.ac.id/lengkap/</a>
