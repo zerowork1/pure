@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://gordensamarinda.com/sthailand/">https://gordensamarinda.com/sthailand/</a>
 <a href="https://faw99.mekarindoacp.co.id/">https://faw99.mekarindoacp.co.id/</a>
 <a href="https://pmb.perbanas.id/thailand/">https://pmb.perbanas.id/thailand/</a>
 <a href="https://tpp.semarangkota.go.id/files/lengkap/">https://tpp.semarangkota.go.id/files/lengkap/</a>
