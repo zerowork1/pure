@@ -1,7 +1,6 @@
 <div style="display:none">
 <a href="https://demoprofil.unesa.ac.id/manggatoto/">https://demoprofil.unesa.ac.id/manggatoto/</a>
 <a href="https://demoprofil.unesa.ac.id/pusat4d/">https://demoprofil.unesa.ac.id/pusat4d/</a>
-<a href="https://demoprofil.unesa.ac.id/kamboja/">https://demoprofil.unesa.ac.id/kamboja/</a>
 <a href="https://pti.fkip.unila.ac.id/wp-content/languages/manggatoto/">https://pti.fkip.unila.ac.id/wp-content/languages/manggatoto/</a>
 <a href="https://pti.fkip.unila.ac.id/wp-content/languages/faw99/">https://pti.fkip.unila.ac.id/wp-content/languages/faw99/</a>
 <a href="https://pti.fkip.unila.ac.id/wp-content/languages/sbobet88/">https://pti.fkip.unila.ac.id/wp-content/languages/sbobet88/</a>
