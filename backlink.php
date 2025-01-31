@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://pti.fkip.unila.ac.id/wp-content/languages/sbobet88/">https://pti.fkip.unila.ac.id/wp-content/languages/sbobet88/</a>
+<a href="https://pti.fkip.unila.ac.id/wp-content/languages/kamboja/">https://pti.fkip.unila.ac.id/wp-content/languages/kamboja/</a>
+<a href="https://pti.fkip.unila.ac.id/wp-content/languages/thailand/">https://pti.fkip.unila.ac.id/wp-content/languages/thailand/</a>
 <a href="https://gordensamarinda.com/sbobet88/">https://gordensamarinda.com/sbobet88/</a>
 <a href="https://gordensamarinda.com/taiwan/">https://gordensamarinda.com/taiwan/</a>
 <a href="https://gordensamarinda.com/sthailand/">https://gordensamarinda.com/sthailand/</a>
