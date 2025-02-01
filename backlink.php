@@ -1,8 +1,8 @@
 <div style="display:none">
+<a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
 <a href="https://heylink.me/OBC4D/">https://heylink.me/OBC4D/</a>
 <a href="http://pmdk.unbi.ac.id/taiwan/">http://pmdk.unbi.ac.id/taiwan/</a>
 <a href="http://pmdk.unbi.ac.id/thailand/">http://pmdk.unbi.ac.id/thailand/</a>
-<a href="https://siklara.kemkes.go.id/taiwan/">https://siklara.kemkes.go.id/taiwan/</a>
 <a href="https://demoprofil.unesa.ac.id/manggatoto/">https://demoprofil.unesa.ac.id/manggatoto/</a>
 <a href="https://demoprofil.unesa.ac.id/pusat4d/">https://demoprofil.unesa.ac.id/pusat4d/</a>
 <a href="https://pti.fkip.unila.ac.id/wp-content/languages/manggatoto/">https://pti.fkip.unila.ac.id/wp-content/languages/manggatoto/</a>
@@ -20,14 +20,8 @@
 <a href="https://demoprofil.unesa.ac.id/kamboja/">togel kamboja</a>
 <a href="https://old-fip.unesa.ac.id/sgp/">https://old-fip.unesa.ac.id/sgp/</a>
 <a href="https://cpfbs.conference.unesa.ac.id/thailand/">https://cpfbs.conference.unesa.ac.id/thailand/</a>
-<a href="https://siklara.kemkes.go.id/vendor/">slot gacor</a>
 <a href="https://smartdinkes.slemankab.go.id/portal/">slot gacor</a>
-<a href="https://kemenkesbootcamp.kemkes.go.id/bola/">https://kemenkesbootcamp.kemkes.go.id/bola/</a>
-<a href="https://kemenkesbootcamp.kemkes.go.id/phk/">https://kemenkesbootcamp.kemkes.go.id/phk/</a>
 <a href="https://joydigitalmag.com/">https://joydigitalmag.com/</a>
-<a href="https://hajisehat.kemkes.go.id/lab/index.html">slot gacor</a>
-<a href="https://sikelim.kemkes.go.id/server/">slot online</a>
-<a href="https://ts-yankes.kemkes.go.id/dok/">slot gacor</a>
 <a href="https://totosuper84.com/">https://totosuper84.com/</a>
 <a href="https://maesodgemssale.com/news/">https://maesodgemssale.com/news/</a>
 <a href="https://akademiktesvik.usak.edu.tr/lengkap/">https://akademiktesvik.usak.edu.tr/lengkap/</a>
@@ -84,7 +78,6 @@
 <a href="https://nadaroadsafety.org/">https://nadaroadsafety.org/</a>
 <a href="https://thenextreal.net/yuu/">https://thenextreal.net/yuu/</a>
 <a href="https://e-retribusipasar.semarangkab.go.id/page/">https://e-retribusipasar.semarangkab.go.id/page/</a>
-<a href="https://api-ina-crc.kemkes.go.id/">https://api-ina-crc.kemkes.go.id/</a>
 <a href="https://iconists.eng.unila.ac.id/">https://iconists.eng.unila.ac.id/</a>
 <a href="https://totokl85.com/">https://totokl98.com/</a>
 <a href="https://sbopoker69.com/">https://sbopoker69.com/</a>
