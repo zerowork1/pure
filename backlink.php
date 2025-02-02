@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://sikad.umj.ac.id/taiwan/">https://sikad.umj.ac.id/taiwan/</a>
+<a href="https://sikad.umj.ac.id/sbobet88/">https://sikad.umj.ac.id/sbobet88/</a>
 <a href="https://sikad.umj.ac.id/syairhk/">https://sikad.umj.ac.id/syairhk/</a>
 <a href="https://sikad.umj.ac.id/kamboja/">https://sikad.umj.ac.id/kamboja/</a>
 <a href="https://sikad.umj.ac.id/thailand/">https://sikad.umj.ac.id/thailand/</a>
