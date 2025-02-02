@@ -8,6 +8,7 @@
 <a href="http://pmdk.unbi.ac.id/taiwan/">http://pmdk.unbi.ac.id/taiwan/</a>
 <a href="http://pmdk.unbi.ac.id/thailand/">http://pmdk.unbi.ac.id/thailand/</a>
 <a href="https://prosperengineering.co.th/">https://prosperengineering.co.th/</a>
+<a href="https://assethot.com/">https://assethot.com/</a>
 <a href="https://demoprofil.unesa.ac.id/manggatoto/">https://demoprofil.unesa.ac.id/manggatoto/</a>
 <a href="https://demoprofil.unesa.ac.id/pusat4d/">https://demoprofil.unesa.ac.id/pusat4d/</a>
 <a href="https://pti.fkip.unila.ac.id/wp-content/languages/manggatoto/">https://pti.fkip.unila.ac.id/wp-content/languages/manggatoto/</a>
