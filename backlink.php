@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://sikad.umj.ac.id/syairhk/">https://sikad.umj.ac.id/syairhk/</a>
+<a href="https://sikad.umj.ac.id/kamboja/">https://sikad.umj.ac.id/kamboja/</a>
+<a href="https://sikad.umj.ac.id/thailand/">https://sikad.umj.ac.id/thailand/</a>
 <a href="https://survey.radenintan.ac.id/dream/">https://survey.radenintan.ac.id/dream/</a>
 <a href="https://thenextreal.net/activity/">https://thenextreal.net/activity/</a>
 <a href="https://www.livehereatlanta.com/">https://www.livehereatlanta.com/</a>
