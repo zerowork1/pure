@@ -7,6 +7,7 @@
 <a href="https://heylink.me/OBC4D/">https://heylink.me/OBC4D/</a>
 <a href="http://pmdk.unbi.ac.id/taiwan/">http://pmdk.unbi.ac.id/taiwan/</a>
 <a href="http://pmdk.unbi.ac.id/thailand/">http://pmdk.unbi.ac.id/thailand/</a>
+<a href="https://prosperengineering.co.th/">https://prosperengineering.co.th/</a>
 <a href="https://demoprofil.unesa.ac.id/manggatoto/">https://demoprofil.unesa.ac.id/manggatoto/</a>
 <a href="https://demoprofil.unesa.ac.id/pusat4d/">https://demoprofil.unesa.ac.id/pusat4d/</a>
 <a href="https://pti.fkip.unila.ac.id/wp-content/languages/manggatoto/">https://pti.fkip.unila.ac.id/wp-content/languages/manggatoto/</a>
@@ -27,7 +28,6 @@
 <a href="https://smartdinkes.slemankab.go.id/portal/">slot gacor</a>
 <a href="https://joydigitalmag.com/">https://joydigitalmag.com/</a>
 <a href="https://totosuper84.com/">https://totosuper84.com/</a>
-<a href="https://maesodgemssale.com/news/">https://maesodgemssale.com/news/</a>
 <a href="https://akademiktesvik.usak.edu.tr/lengkap/">https://akademiktesvik.usak.edu.tr/lengkap/</a>
 <a href="https://journal.unram.ac.id/land/">https://journal.unram.ac.id/land/</a>
 <a href="https://journal-stiehidayatullah.ac.id/lengkap/">https://journal-stiehidayatullah.ac.id/lengkap/</a>
