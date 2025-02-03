@@ -1,11 +1,4 @@
 <div style="display:none">
-<a href="https://sikad.umj.ac.id/taiwan/">https://sikad.umj.ac.id/taiwan/</a>
-<a href="https://sikad.umj.ac.id/sbobet88/">https://sikad.umj.ac.id/sbobet88/</a>
-<a href="https://sikad.umj.ac.id/syairhk/">https://sikad.umj.ac.id/syairhk/</a>
-<a href="https://sikad.umj.ac.id/kamboja/">https://sikad.umj.ac.id/kamboja/</a>
-<a href="https://sikad.umj.ac.id/thailand/">https://sikad.umj.ac.id/thailand/</a>
-<a href="https://survey.radenintan.ac.id/dream/">https://survey.radenintan.ac.id/dream/</a>
-<a href="https://thenextreal.net/activity/">https://thenextreal.net/activity/</a>
 <a href="https://www.livehereatlanta.com/">https://www.livehereatlanta.com/</a>
 <a href="https://siklara.kemkes.go.id/taiwan/">syair hk</a>
 <a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
