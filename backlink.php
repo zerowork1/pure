@@ -10,6 +10,10 @@
 <a href="https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/">https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/</a>
 <a href="https://prosperengineering.co.th/">https://prosperengineering.co.th/</a>
 <a href="https://assethot.com/">https://assethot.com/</a>
+<a href="https://gaji.kemkes.go.id/documents/">slot gacor</a>
+<a href="https://gaji.kemkes.go.id/overtime/">judi bola</a>
+<a href="https://gaji.kemkes.go.id/dist/">demo slot</a>
+<a href="https://gaji.kemkes.go.id/kulitkuda/">https://gaji.kemkes.go.id/kulitkuda/</a>
 <a href="https://gordensamarinda.com/sbobet88/">https://gordensamarinda.com/sbobet88/</a>
 <a href="https://tpp.semarangkota.go.id/files/lengkap/">https://tpp.semarangkota.go.id/files/lengkap/</a>
 <a href="https://demoprofil.unesa.ac.id/kamboja/">togel kamboja</a>
@@ -91,8 +95,4 @@
 <a href="https://www.fightthebull.com/">https://www.fightthebull.com/</a>
 <a href="https://www.esteghlalshop.com/">https://www.esteghlalshop.com/</a>
 <a href="https://linklist.bio/pisangbet">https://linklist.bio/pisangbet</a>
-<a href="https://gaji.kemkes.go.id/documents/">slot gacor</a>
-<a href="https://gaji.kemkes.go.id/overtime/">judi bola</a>
-<a href="https://gaji.kemkes.go.id/dist/">demo slot</a>
-<a href="https://gaji.kemkes.go.id/kulitkuda/">https://gaji.kemkes.go.id/kulitkuda/</a>
 </div>
