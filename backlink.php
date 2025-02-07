@@ -3,6 +3,8 @@
 <a href="https://siklara.kemkes.go.id/taiwan/">syair hk</a>
 <a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
 <a href="https://heylink.me/OBC4D/">https://heylink.me/OBC4D/</a>
+<a href="https://kejari-batam.kejaksaan.go.id/adminknbatam/togel/">https://kejari-batam.kejaksaan.go.id/adminknbatam/togel/</a>
+<a href="https://kejari-batam.kejaksaan.go.id/adminknbatam/bola/">https://kejari-batam.kejaksaan.go.id/adminknbatam/bola/</a>
 <a href="https://www.jakartamesinlaundry.com/group/totosuper/">https://www.jakartamesinlaundry.com/group/totosuper/</a>
 <a href="https://www.jakartamesinlaundry.com/group/obctop/">https://www.jakartamesinlaundry.com/group/obctop/</a>
 <a href="https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/">https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/</a>
