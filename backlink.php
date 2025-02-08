@@ -4,6 +4,7 @@
 <a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
 <a href="https://heylink.me/OBC4D/">https://heylink.me/OBC4D/</a>
 <a href="https://totosuper73.com/">https://totosuper73.com/</a>
+<a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
 <a href="https://kejari-batam.kejaksaan.go.id/adminknbatam/togel/">https://kejari-batam.kejaksaan.go.id/adminknbatam/togel/</a>
 <a href="https://kejari-batam.kejaksaan.go.id/adminknbatam/bola/">https://kejari-batam.kejaksaan.go.id/adminknbatam/bola/</a>
 <a href="https://www.jakartamesinlaundry.com/group/totosuper/">https://www.jakartamesinlaundry.com/group/totosuper/</a>
@@ -22,7 +23,6 @@
 <a href="https://smartdinkes.slemankab.go.id/portal/">slot gacor</a>
 <a href="https://joydigitalmag.com/">https://joydigitalmag.com/</a>
 <a href="https://akademiktesvik.usak.edu.tr/lengkap/">https://akademiktesvik.usak.edu.tr/lengkap/</a>
-<a href="https://regutembakdalam.org/">https://regutembakdalam.org/</a>
 <a href="http://ejurnal.stimata.ac.id/classes/">http://ejurnal.stimata.ac.id/classes/</a>
 <a href="http://semnas.radenfatah.ac.id/">http://semnas.radenfatah.ac.id/</a>
 <a href="https://www.airsupercheap.com/styles/to/">https://www.airsupercheap.com/styles/to/</a>
