@@ -3,11 +3,11 @@
 <a href="https://siklara.kemkes.go.id/taiwan/">syair hk</a>
 <a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
 <a href="https://heylink.me/OBC4D/">https://heylink.me/OBC4D/</a>
+<a href="https://totosuper73.com/">https://totosuper73.com/</a>
 <a href="https://kejari-batam.kejaksaan.go.id/adminknbatam/togel/">https://kejari-batam.kejaksaan.go.id/adminknbatam/togel/</a>
 <a href="https://kejari-batam.kejaksaan.go.id/adminknbatam/bola/">https://kejari-batam.kejaksaan.go.id/adminknbatam/bola/</a>
 <a href="https://www.jakartamesinlaundry.com/group/totosuper/">https://www.jakartamesinlaundry.com/group/totosuper/</a>
 <a href="https://www.jakartamesinlaundry.com/group/obctop/">https://www.jakartamesinlaundry.com/group/obctop/</a>
-<a href="https://wonosobo.pramukajateng.or.id/page/">https://wonosobo.pramukajateng.or.id/page/</a>
 <a href="https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/">https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/</a>
 <a href="https://prosperengineering.co.th/">https://prosperengineering.co.th/</a>
 <a href="https://assethot.com/">https://assethot.com/</a>
@@ -21,7 +21,6 @@
 <a href="https://cpfbs.conference.unesa.ac.id/thailand/">https://cpfbs.conference.unesa.ac.id/thailand/</a>
 <a href="https://smartdinkes.slemankab.go.id/portal/">slot gacor</a>
 <a href="https://joydigitalmag.com/">https://joydigitalmag.com/</a>
-<a href="https://totosuper84.com/">https://totosuper84.com/</a>
 <a href="https://akademiktesvik.usak.edu.tr/lengkap/">https://akademiktesvik.usak.edu.tr/lengkap/</a>
 <a href="https://regutembakdalam.org/">https://regutembakdalam.org/</a>
 <a href="http://ejurnal.stimata.ac.id/classes/">http://ejurnal.stimata.ac.id/classes/</a>
