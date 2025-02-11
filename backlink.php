@@ -10,6 +10,7 @@
 <a href="https://www.jakartamesinlaundry.com/group/totosuper/">https://www.jakartamesinlaundry.com/group/totosuper/</a>
 <a href="https://www.jakartamesinlaundry.com/group/obctop/">https://www.jakartamesinlaundry.com/group/obctop/</a>
 <a href="https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/">https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/</a>
+<a href="https://wonosobo.pramukajateng.or.id/ts/">https://wonosobo.pramukajateng.or.id/ts/</a>
 <a href="https://prosperengineering.co.th/">https://prosperengineering.co.th/</a>
 <a href="https://assethot.com/">https://assethot.com/</a>
 <a href="https://gaji.kemkes.go.id/documents/">slot gacor</a>
