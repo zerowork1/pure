@@ -13,6 +13,7 @@
 <a href="https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/">https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/</a>
 <a href="https://wonosobo.pramukajateng.or.id/ts/">https://wonosobo.pramukajateng.or.id/ts/</a>
 <a href="https://wonosobo.pramukajateng.or.id/totokl/">https://wonosobo.pramukajateng.or.id/totokl/</a>
+<a href="https://referensipropertyindo.com/totokl/">https://referensipropertyindo.com/totokl/</a>
 <a href="https://prosperengineering.co.th/">https://prosperengineering.co.th/</a>
 <a href="https://assethot.com/">https://assethot.com/</a>
 <a href="https://gaji.kemkes.go.id/documents/">slot gacor</a>
@@ -67,7 +68,6 @@
 <a href="https://hangtuah.ac.id/hehe/">https://hangtuah.ac.id/hehe/</a>
 <a href="https://jurnalfuda.iainkediri.ac.id/">https://jurnalfuda.iainkediri.ac.id/</a>
 <a href="http://absen.bbpomserang.com/">http://absen.bbpomserang.com/</a>
-<a href="https://referensipropertyindo.com/totokl/">https://referensipropertyindo.com/totokl/</a>
 <a href="https://mynida.stainidaeladabi.ac.id/top/">https://mynida.stainidaeladabi.ac.id/top/</a>
 <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
 <a href="https://ejurnal.unim.ac.id/">https://ejurnal.unim.ac.id/</a>
