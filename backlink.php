@@ -7,6 +7,7 @@
 <a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
 <a href="https://kejari-batam.kejaksaan.go.id/adminknbatam/togel/">https://kejari-batam.kejaksaan.go.id/adminknbatam/togel/</a>
 <a href="https://kejari-batam.kejaksaan.go.id/adminknbatam/bola/">https://kejari-batam.kejaksaan.go.id/adminknbatam/bola/</a>
+<a href="https://lms.shantibhuana.ac.id/toto/">https://lms.shantibhuana.ac.id/toto/</a>
 <a href="https://www.jakartamesinlaundry.com/group/totosuper/">https://www.jakartamesinlaundry.com/group/totosuper/</a>
 <a href="https://www.jakartamesinlaundry.com/group/obctop/">https://www.jakartamesinlaundry.com/group/obctop/</a>
 <a href="https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/">https://e-retribusipasar.semarangkab.go.id/pajak/kudakepang/</a>
