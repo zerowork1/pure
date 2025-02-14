@@ -4,6 +4,8 @@
 <a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
 <a href="https://heylink.me/OBC4D/">https://heylink.me/OBC4D/</a>
 <a href="https://totosuper73.com/">https://totosuper73.com/</a>
+<a href="https://trendgyaan.com/">https://trendgyaan.com/</a>
+<a href="https://magpie-london.com/">https://magpie-london.com/</a>
 <a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
 <a href="https://kejari-batam.kejaksaan.go.id/adminknbatam/togel/">https://kejari-batam.kejaksaan.go.id/adminknbatam/togel/</a>
 <a href="https://kejari-batam.kejaksaan.go.id/adminknbatam/bola/">https://kejari-batam.kejaksaan.go.id/adminknbatam/bola/</a>
