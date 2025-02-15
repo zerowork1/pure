@@ -63,7 +63,6 @@
 <a href="https://data.madiunkab.go.id/hehe/">https://data.madiunkab.go.id/hehe/</a>
 <a href="https://sizbet.com/">https://sizbet.com/</a>
 <a href="https://heylink.me/totosuper-login/">https://heylink.me/totosuper-login/</a>
-<a href="https://regutembakdalam.org/">https://regutembakdalam.org/</a>
 <a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a>
 <a href="https://peradaban.ac.id/">https://peradaban.ac.id/</a>
 <a href="https://checklist-tsel.telkomsigma.co.id/">https://checklist-tsel.telkomsigma.co.id/</a>
