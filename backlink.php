@@ -24,7 +24,6 @@
 <a href="https://bkombandung.kemkes.go.id/toto/">https://bkombandung.kemkes.go.id/toto/</a>
 <a href="https://old-fip.unesa.ac.id/sgp/">https://old-fip.unesa.ac.id/sgp/</a>
 <a href="https://joydigitalmag.com/">https://joydigitalmag.com/</a>
-<a href="http://ejurnal.stimata.ac.id/classes/">http://ejurnal.stimata.ac.id/classes/</a>
 <a href="http://semnas.radenfatah.ac.id/">http://semnas.radenfatah.ac.id/</a>
 <a href="https://www.airsupercheap.com/styles/to/">https://www.airsupercheap.com/styles/to/</a>
 <a href="https://www.universeballoon.com/blog/">https://www.universeballoon.com/blog/</a>
@@ -53,7 +52,6 @@
 <a href="https://checklist-tsel.telkomsigma.co.id/">https://checklist-tsel.telkomsigma.co.id/</a>
 <a href="https://umart.um.ac.id/">https://umart.um.ac.id/</a>
 <a href="https://cakrajb.um.ac.id/">https://cakrajb.um.ac.id/</a>
-<a href="https://hangtuah.ac.id/hehe/">https://hangtuah.ac.id/hehe/</a>
 <a href="https://jurnalfuda.iainkediri.ac.id/">https://jurnalfuda.iainkediri.ac.id/</a>
 <a href="http://absen.bbpomserang.com/">http://absen.bbpomserang.com/</a>
 <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
@@ -66,7 +64,6 @@
 <a href="https://monicabelluccifan.com/">https://monicabelluccifan.com/</a>
 <a href="https://plantatuarbol.com/">https://plantatuarbol.com/</a>
 <a href="https://www.nycschoolcalendar.net/">https://www.nycschoolcalendar.net/</a>
-<a href="https://bkpsdmad.sambas.go.id/gaspol/">https://bkpsdmad.sambas.go.id/gaspol/</a>
 <a href="https://bisnisdigital.darmajaya.ac.id/">https://bisnisdigital.darmajaya.ac.id/</a>
 <a href="https://umasssoils.com/">https://umasssoils.com/</a>
 <a href="https://pertanian.jatimprov.go.id/">https://pertanian.jatimprov.go.id/</a>
