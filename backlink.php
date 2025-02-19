@@ -3,9 +3,6 @@
 <a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
 <a href="https://heylink.me/OBC4D/">https://heylink.me/OBC4D/</a>
 <a href="https://totosuper73.com/">https://totosuper73.com/</a>
-<a href="https://trendgyaan.com/">https://trendgyaan.com/</a>
-<a href="https://magpie-london.com/">https://magpie-london.com/</a>
-<a href="https://mustreadsornot.com/">https://mustreadsornot.com/</a>
 <a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
 <a href="https://lms.shantibhuana.ac.id/toto/">https://lms.shantibhuana.ac.id/toto/</a>
 <a href="https://sinovik.kemkes.go.id/page/toto/">https://sinovik.kemkes.go.id/page/toto/</a>
@@ -57,15 +54,11 @@
 <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
 <a href="https://ejurnal.unim.ac.id/">https://ejurnal.unim.ac.id/</a>
 <a href="https://sekda.pamekasankab.go.id/">https://sekda.pamekasankab.go.id/</a>
-<a href="https://usaidwildlifeasia.org/">https://usaidwildlifeasia.org/</a>
 <a href="https://lifeontwitter.com/">https://lifeontwitter.com/</a>  
 <a href="https://hipdroprecords.com/">https://hipdroprecords.com/</a>  
 <a href="https://donostikluba.com/">https://donostikluba.com/</a>  
-<a href="https://monicabelluccifan.com/">https://monicabelluccifan.com/</a>
 <a href="https://plantatuarbol.com/">https://plantatuarbol.com/</a>
-<a href="https://www.nycschoolcalendar.net/">https://www.nycschoolcalendar.net/</a>
 <a href="https://bisnisdigital.darmajaya.ac.id/">https://bisnisdigital.darmajaya.ac.id/</a>
-<a href="https://umasssoils.com/">https://umasssoils.com/</a>
 <a href="https://pertanian.jatimprov.go.id/">https://pertanian.jatimprov.go.id/</a>
 <a href="https://manumminen.com/">https://manumminen.com/</a>
 <a href="https://artandsignature.com/">https://artandsignature.com/</a>
