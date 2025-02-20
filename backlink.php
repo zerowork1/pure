@@ -1,5 +1,4 @@
 <div style="display:none">
-<a href="https://www.livehereatlanta.com/">https://www.livehereatlanta.com/</a>
 <a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
 <a href="https://heylink.me/OBC4D/">https://heylink.me/OBC4D/</a>
 <a href="https://totosuper73.com/">https://totosuper73.com/</a>
