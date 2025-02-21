@@ -2,6 +2,7 @@
 <a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
 <a href="https://heylink.me/OBC4D/">https://heylink.me/OBC4D/</a>
 <a href="https://totosuper73.com/">https://totosuper73.com/</a>
+<a href="https://trendgyaan.com/">https://trendgyaan.com/</a>
 <a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
 <a href="https://lms.shantibhuana.ac.id/toto/">https://lms.shantibhuana.ac.id/toto/</a>
 <a href="https://sinovik.kemkes.go.id/page/toto/">https://sinovik.kemkes.go.id/page/toto/</a>
