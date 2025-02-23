@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://seleksi.unesa.ac.id/hk/">https://seleksi.unesa.ac.id/hk/</a>
 <a href="https://seleksi.unesa.ac.id/thailand/">https://seleksi.unesa.ac.id/thailand/</a>
 <a href="https://purworejo.pramukajateng.or.id/">https://purworejo.pramukajateng.or.id/</a>
 <a href="https://dipro.isi-ska.ac.id/hk/">https://dipro.isi-ska.ac.id/hk/</a>
