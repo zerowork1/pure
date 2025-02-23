@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="http://www.jfkip.umuslim.ac.id/thailand/">http://www.jfkip.umuslim.ac.id/thailand/</a>
 <a href="https://dipro.isi-ska.ac.id/thailand/">https://dipro.isi-ska.ac.id/thailand/</a>
 <a href="https://sidata-labschool.unesa.ac.id/kamboja/">https://sidata-labschool.unesa.ac.id/kamboja/</a>
 <a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
