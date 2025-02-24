@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://siakaduppg.unesa.ac.id/shk/">https://siakaduppg.unesa.ac.id/shk/</a>
 <a href="http://spbe.sambas.go.id/kamboja/">http://spbe.sambas.go.id/kamboja/</a>
 <a href="http://spbe.sambas.go.id/thailand/">http://spbe.sambas.go.id/thailand/</a>
 <a href="https://seleksi.unesa.ac.id/hk/">https://seleksi.unesa.ac.id/hk/</a>
