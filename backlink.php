@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://reg-symomath.ub.ac.id/sthai/">https://reg-symomath.ub.ac.id/sthai/</a>
 <a href="http://repository.isi-ska.ac.id/sthai/">http://repository.isi-ska.ac.id/sthai/</a>
 <a href="http://103.104.177.181/to/">http://103.104.177.181/to/</a>
 <a href="https://siakaduppg.unesa.ac.id/shk/">https://siakaduppg.unesa.ac.id/shk/</a>
