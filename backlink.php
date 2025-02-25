@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://www.pcproductsinter.com/clamp/">https://www.pcproductsinter.com/clamp/</a>
+<a href="https://www.pcproductsinter.com/austempering/">https://www.pcproductsinter.com/austempering/</a>
 <a href="https://powerade.co.th/about/">https://powerade.co.th/about/</a>
 <a href="https://powerade.co.th/products/">https://powerade.co.th/products/</a>
 <a href="https://premiocondo.com/Project/">https://premiocondo.com/Project/</a>
