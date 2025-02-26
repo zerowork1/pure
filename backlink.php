@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://hkip.unesa.ac.id/hkipb/">https://hkip.unesa.ac.id/hkipb/</a>
+<a href="https://hkip.unesa.ac.id/hkipt/">https://hkip.unesa.ac.id/hkipt/</a>
 <a href="https://hkip.unesa.ac.id/hkip/">https://hkip.unesa.ac.id/hkip/</a>
 <a href="https://alia.unesa.ac.id/alias/">https://alia.unesa.ac.id/alias/</a>
 <a href="https://alia.unesa.ac.id/alia/">https://alia.unesa.ac.id/alia/</a>
