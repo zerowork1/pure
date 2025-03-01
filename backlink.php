@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="http://103.88.229.25/libtancor/">http://103.88.229.25/libtancor/</a>
 <a href="http://103.88.229.63/tankam/">http://103.88.229.63/tankam/</a>
 <a href="http://103.88.229.63/tanthai/">http://103.88.229.63/tanthai/</a>
 <a href="https://alia.unesa.ac.id/aliathai/">https://alia.unesa.ac.id/aliathai/</a>
