@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://sptpd.tubankab.go.id/sptpdthai/index.html">https://sptpd.tubankab.go.id/sptpdthai/index.html</a>
 <a href="https://sibale.singkawangkota.go.id/sibalethai/index.html">https://sibale.singkawangkota.go.id/sibalethai/index.html</a>
 <a href="https://sidata-labschool.unesa.ac.id/labschoolthai/">https://sidata-labschool.unesa.ac.id/labschoolthai/</a>
 <a href="https://elearning.iainmadura.ac.id/elearningthai/">https://elearning.iainmadura.ac.id/elearningthai/</a>
