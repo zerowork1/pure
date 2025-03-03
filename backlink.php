@@ -14,6 +14,7 @@
 <a href="https://hkip.unesa.ac.id/hkip/">https://hkip.unesa.ac.id/hkip/</a>
 <a href="https://alia.unesa.ac.id/alias/">https://alia.unesa.ac.id/alias/</a>
 <a href="https://alia.unesa.ac.id/alia/">https://alia.unesa.ac.id/alia/</a>
+  <a href="https://bsb-mfg.com/">https://bsb-mfg.com/</a>
 <a href="https://siakaduppg.unesa.ac.id/sdy/">https://siakaduppg.unesa.ac.id/sdy/</a>
 <a href="https://siaprorengar.kemkes.go.id/hk/">https://siaprorengar.kemkes.go.id/hk/</a>
 <a href="https://siakaduppg.unesa.ac.id/thai/">https://siakaduppg.unesa.ac.id/thai/</a>
