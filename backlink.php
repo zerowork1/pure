@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://link.kemkes.go.id/pisthai/">https://link.kemkes.go.id/pisthai/</a>
 <a href="https://jocai.usu.ac.id/jocaithai/">https://jocai.usu.ac.id/jocaithai/</a>
 <a href="https://watashi-zeercenter.com/">https://watashi-zeercenter.com/</a>
 <a href="https://siakad.unim.ac.id/to/">https://siakad.unim.ac.id/to/</a>
