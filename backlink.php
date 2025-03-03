@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://sidata-labschool.unesa.ac.id/labschoolthai/">https://sidata-labschool.unesa.ac.id/labschoolthai/</a>
 <a href="https://elearning.iainmadura.ac.id/elearningthai/">https://elearning.iainmadura.ac.id/elearningthai/</a>
 <a href="https://siakad.unim.ac.id/siakadthai/">https://siakad.unim.ac.id/siakadthai/</a>
 <a href="https://link.kemkes.go.id/pisthai/">https://link.kemkes.go.id/pisthai/</a>
