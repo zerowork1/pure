@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://jocai.usu.ac.id/jocaipis/">https://jocai.usu.ac.id/jocaipis/</a>
+<a href="https://singbar.singkawangkota.go.id/singbarthai/index.html">https://singbar.singkawangkota.go.id/singbarthai/index.html</a>
+<a href="https://mediacenter.singkawangkota.go.id/mediacenterthai/">https://mediacenter.singkawangkota.go.id/mediacenterthai/</a>
 <a href="https://kerjasama.itbwigalumajang.ac.id/kerjasamathai/">https://kerjasama.itbwigalumajang.ac.id/kerjasamathai/</a>
 <a href="https://sptpd.tubankab.go.id/sptpdthai/index.html">https://sptpd.tubankab.go.id/sptpdthai/index.html</a>
 <a href="https://sibale.singkawangkota.go.id/sibalethai/index.html">https://sibale.singkawangkota.go.id/sibalethai/index.html</a>
