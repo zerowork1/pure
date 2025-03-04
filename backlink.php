@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://fpsi.hangtuah.ac.id/fpsithai/">https://fpsi.hangtuah.ac.id/fpsithai/</a>
+<a href="https://kepegawaian.hangtuah.ac.id/kepegawaianthai/">https://kepegawaian.hangtuah.ac.id/kepegawaianthai/</a>
 <a href="https://library.stikesmi.ac.id/librarythai/">https://library.stikesmi.ac.id/librarythai/</a>
 <a href="https://student.stikesmi.ac.id/studentthai/">https://student.stikesmi.ac.id/studentthai/</a>
 <a href="https://talenta.usu.ac.id/talentathai/">https://talenta.usu.ac.id/talentathai/</a>
