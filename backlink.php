@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://pengaduan.menlhk.go.id/duanthai/">https://pengaduan.menlhk.go.id/duanthai/</a>
+<a href="https://landing.ars.ac.id/landthai/">https://landing.ars.ac.id/landthai/</a>
+<a href="https://lib.shantibhuana.ac.id/libpis/">https://lib.shantibhuana.ac.id/libpis/</a>
 <a href="https://thenextreal.net/ekkamai-market/">https://thenextreal.net/ekkamai-market/</a>
 <a href="https://jocai.usu.ac.id/jocaipis/">https://jocai.usu.ac.id/jocaipis/</a>
 <a href="https://singbar.singkawangkota.go.id/singbarthai/index.html">https://singbar.singkawangkota.go.id/singbarthai/index.html</a>
