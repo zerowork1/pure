@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://talenta.usu.ac.id/talentathai/">https://talenta.usu.ac.id/talentathai/</a>
 <a href="https://pengaduan.menlhk.go.id/duanthai/">https://pengaduan.menlhk.go.id/duanthai/</a>
 <a href="https://landing.ars.ac.id/landthai/">https://landing.ars.ac.id/landthai/</a>
 <a href="https://lib.shantibhuana.ac.id/libpis/">https://lib.shantibhuana.ac.id/libpis/</a>
