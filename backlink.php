@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://diskominfo.sambas.go.id/diskominfothai/index.html">https://diskominfo.sambas.go.id/diskominfothai/index.html</a>
+<a href="https://e-office.pssi.org/e-office/index.html">https://e-office.pssi.org/e-office/index.html</a>
+<a href="https://spbe.pamekasankab.go.id/spbethai/index.html">https://spbe.pamekasankab.go.id/spbethai/index.html</a>
 <a href="https://geo.fish.unesa.ac.id/geopisang/index.html">https://geo.fish.unesa.ac.id/geopisang/index.html</a>
 <a href="https://ellcenter.unesa.ac.id/ellcenterthai/index.html">https://ellcenter.unesa.ac.id/ellcenterthai/index.html</a>
 <a href="https://demoprofil.unesa.ac.id/demoprofilthai/index.html">https://demoprofil.unesa.ac.id/demoprofilthai/index.html</a>
