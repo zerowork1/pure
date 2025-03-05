@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://akuntansi.itny.ac.id/akuntansithai/">https://akuntansi.itny.ac.id/akuntansithai/</a>
+<a href="https://oceandata.hangtuah.ac.id/oceanthai/">https://oceandata.hangtuah.ac.id/oceanthai/</a>
+<a href="https://fh.hangtuah.ac.id/fhthai/">https://fh.hangtuah.ac.id/fhthai/</a>
 <a href="https://siladikti.hangtuah.ac.id/siladiktithai/">https://siladikti.hangtuah.ac.id/siladiktithai/</a>
 <a href="https://rock.hangtuah.ac.id/rockthai/">https://rock.hangtuah.ac.id/rockthai/</a>
 <a href="https://adm-publik.fisip.hangtuah.ac.id/fisipthai/">https://adm-publik.fisip.hangtuah.ac.id/fisipthai/</a>
