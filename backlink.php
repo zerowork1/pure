@@ -6,6 +6,7 @@
 <a href="https://fh.hangtuah.ac.id/fhthai/">https://fh.hangtuah.ac.id/fhthai/</a>
 <a href="https://siladikti.hangtuah.ac.id/siladiktithai/">https://siladikti.hangtuah.ac.id/siladiktithai/</a>
 <a href="https://rock.hangtuah.ac.id/rockthai/">https://rock.hangtuah.ac.id/rockthai/</a>
+<a href="https://sinovik.kemkes.go.id/assets/kuda/">https://sinovik.kemkes.go.id/assets/kuda/</a>
 <a href="https://adm-publik.fisip.hangtuah.ac.id/fisipthai/">https://adm-publik.fisip.hangtuah.ac.id/fisipthai/</a>
 <a href="https://fpsi.hangtuah.ac.id/fpsithai/">https://fpsi.hangtuah.ac.id/fpsithai/</a>
 <a href="https://kepegawaian.hangtuah.ac.id/kepegawaianthai/">https://kepegawaian.hangtuah.ac.id/kepegawaianthai/</a>
