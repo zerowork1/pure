@@ -1,4 +1,7 @@
 <div style="display:none">
+<a href="https://e-office.unesa.ac.id/e-officethai/index.html">https://e-office.unesa.ac.id/e-officethai/index.html</a>
+<a href="https://siakadu.unesa.ac.id/siakaduthai/index.html">https://siakadu.unesa.ac.id/siakaduthai/index.html</a>
+<a href="https://ft.usri.ac.id/">https://ft.usri.ac.id/</a>
 <a href="https://www.selfreg.ru/raychem/">https://www.selfreg.ru/raychem/</a>
 <a href="https://atisisbada.bantenprov.go.id/atisisbadathai/">https://atisisbada.bantenprov.go.id/atisisbadathai/</a>
 <a href="https://siarvi.kemkes.go.id/style/index.html">https://siarvi.kemkes.go.id/style/index.html</a>
