@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://www.selfreg.ru/raychem/">https://www.selfreg.ru/raychem/</a>
+<a href="https://atisisbada.bantenprov.go.id/atisisbadathai/">https://atisisbada.bantenprov.go.id/atisisbadathai/</a>
 <a href="https://siarvi.kemkes.go.id/style/index.html">https://siarvi.kemkes.go.id/style/index.html</a>
 <a href="https://diskominfo.sambas.go.id/diskominfothai/index.html">https://diskominfo.sambas.go.id/diskominfothai/index.html</a>
 <a href="https://e-office.pssi.org/e-office/index.html">https://e-office.pssi.org/e-office/index.html</a>
