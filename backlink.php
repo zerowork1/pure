@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://sipedaz.pamekasankab.go.id/assets/slot/">https://sipedaz.pamekasankab.go.id/assets/slot/</a>
 <a href="https://e-office.unesa.ac.id/e-officethai/index.html">https://e-office.unesa.ac.id/e-officethai/index.html</a>
 <a href="https://siakadu.unesa.ac.id/siakaduthai/index.html">https://siakadu.unesa.ac.id/siakaduthai/index.html</a>
 <a href="https://ft.usri.ac.id/">https://ft.usri.ac.id/</a>
