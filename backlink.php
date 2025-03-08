@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://joborder.ish.co.id/lol/">https://joborder.ish.co.id/lol/</a>
 <a href="https://sbopoker75.com/">https://sbopoker75.com/</a>
 <a href="https://elearningppds.med.unhas.ac.id/elearningppdsthai/">https://elearningppds.med.unhas.ac.id/elearningppdsthai/</a>
 <a href="https://sipedaz.pamekasankab.go.id/assets/slot/">https://sipedaz.pamekasankab.go.id/assets/slot/</a>
@@ -124,7 +125,6 @@
 <a href="https://linklist.bio/pisangbet">https://linklist.bio/pisangbet</a>
 <a href="https://yosemiteclimbingmuseum.com/">https://yosemiteclimbingmuseum.com/</a>
 <a href="https://www.rpg.co.id/xthai/">https://www.rpg.co.id/xthai/</a>
-<a href="https://joborder.ish.co.id/xcor/">https://joborder.ish.co.id/xcor/</a>
 <a href="https://www.unboundconcepts.com/">https://www.unboundconcepts.com/</a>
 <a href="https://esteghlalshop.com/">https://esteghlalshop.com/</a>
 <a href="https://fightthebull.com/">https://fightthebull.com/</a>
