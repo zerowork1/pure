@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://sbopoker75.com/">https://sbopoker75.com/</a>
 <a href="https://elearningppds.med.unhas.ac.id/elearningppdsthai/">https://elearningppds.med.unhas.ac.id/elearningppdsthai/</a>
 <a href="https://sipedaz.pamekasankab.go.id/assets/slot/">https://sipedaz.pamekasankab.go.id/assets/slot/</a>
 <a href="https://e-office.unesa.ac.id/e-officethai/index.html">https://e-office.unesa.ac.id/e-officethai/index.html</a>
@@ -56,8 +57,6 @@
 <a href="https://siakaduppg.unesa.ac.id/shk/">https://siakaduppg.unesa.ac.id/shk/</a>
 <a href="http://spbe.sambas.go.id/kamboja/">http://spbe.sambas.go.id/kamboja/</a>
 <a href="http://spbe.sambas.go.id/thailand/">http://spbe.sambas.go.id/thailand/</a>
-<a href="https://purworejo.pramukajateng.or.id/">https://purworejo.pramukajateng.or.id/</a>
-<a href="https://rembang.pramukajateng.or.id/thailand/">https://rembang.pramukajateng.or.id/thailand/</a>
 <a href="http://www.jfkip.umuslim.ac.id/thailand/">http://www.jfkip.umuslim.ac.id/thailand/</a>
 <a href="https://sidata-labschool.unesa.ac.id/kamboja/">https://sidata-labschool.unesa.ac.id/kamboja/</a>
 <a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
@@ -86,7 +85,6 @@
 <a href="http://semnas.radenfatah.ac.id/">http://semnas.radenfatah.ac.id/</a>
 <a href="https://www.airsupercheap.com/styles/to/">https://www.airsupercheap.com/styles/to/</a>
 <a href="https://www.universeballoon.com/blog/">https://www.universeballoon.com/blog/</a>
-<a href="https://e-retribusipasar.semarangkab.go.id/vendor/sbop/">https://e-retribusipasar.semarangkab.go.id/vendor/sbop/</a>
 <a href="https://ppchire.com/">https://ppchire.com/</a>
 <a href="https://everisawards.com/">https://everisawards.com/</a>
 <a href="https://edulip.com/">https://edulip.com/</a>
@@ -95,9 +93,7 @@
 <a href="https://centraloregonadvertising.com/">https://centraloregonadvertising.com/</a>
 <a href="https://london-skyline.com/">https://london-skyline.com/</a>
 <a href="https://nadaroadsafety.org/">https://nadaroadsafety.org/</a>
-<a href="https://e-retribusipasar.semarangkab.go.id/page/">https://e-retribusipasar.semarangkab.go.id/page/</a>
 <a href="https://totokl85.com/">https://totokl98.com/</a>
-<a href="https://sbopoker69.com/">https://sbopoker69.com/</a>
 <a href="https://bukaantotokl.com/">https://bukaantotokl.com/</a>
 <a href="https://www.enportadas.com/">https://www.enportadas.com/</a>
 <a href="https://www.wifeemade.com/">https://www.wifeemade.com/</a>
