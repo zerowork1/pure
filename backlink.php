@@ -5,6 +5,7 @@
 <a href="https://sipedaz.pamekasankab.go.id/assets/slot/">https://sipedaz.pamekasankab.go.id/assets/slot/</a>
 <a href="https://e-office.unesa.ac.id/e-officethai/index.html">https://e-office.unesa.ac.id/e-officethai/index.html</a>
 <a href="https://siakadu.unesa.ac.id/siakaduthai/index.html">https://siakadu.unesa.ac.id/siakaduthai/index.html</a>
+<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a>
 <a href="https://ft.usri.ac.id/">https://ft.usri.ac.id/</a>
 <a href="https://www.selfreg.ru/raychem/">https://www.selfreg.ru/raychem/</a>
 <a href="https://atisisbada.bantenprov.go.id/atisisbadathai/">https://atisisbada.bantenprov.go.id/atisisbadathai/</a>
@@ -103,7 +104,6 @@
 <a href="https://www.santafesteak.com/">https://www.santafesteak.com/</a>
 <a href="https://sizbet.com/">https://sizbet.com/</a>
 <a href="https://heylink.me/totosuper-login/">https://heylink.me/totosuper-login/</a>
-<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a>
 <a href="https://peradaban.ac.id/">https://peradaban.ac.id/</a>
 <a href="https://checklist-tsel.telkomsigma.co.id/">https://checklist-tsel.telkomsigma.co.id/</a>
 <a href="https://umart.um.ac.id/">https://umart.um.ac.id/</a>
