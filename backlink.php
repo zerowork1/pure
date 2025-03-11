@@ -1,6 +1,8 @@
 <div style="display:none">
 <a href="https://joborder.ish.co.id/lol/">https://joborder.ish.co.id/lol/</a>
 <a href="https://sbopoker75.com/">https://sbopoker75.com/</a>
+<a href="https://totokl85.com/">https://totokl85.com/</a>
+<a href="https://totosuper73.com/">https://totosuper73.com/</a>
 <a href="https://elearningppds.med.unhas.ac.id/elearningppdsthai/">https://elearningppds.med.unhas.ac.id/elearningppdsthai/</a>
 <a href="https://sipedaz.pamekasankab.go.id/assets/slot/">https://sipedaz.pamekasankab.go.id/assets/slot/</a>
 <a href="https://e-office.unesa.ac.id/e-officethai/index.html">https://e-office.unesa.ac.id/e-officethai/index.html</a>
@@ -63,7 +65,6 @@
 <a href="https://sidata-labschool.unesa.ac.id/kamboja/">https://sidata-labschool.unesa.ac.id/kamboja/</a>
 <a href="https://konsultasialkespkrt.kemkes.go.id/book/">slot</a>
 <a href="https://heylink.me/OBC4D/">https://heylink.me/OBC4D/</a>
-<a href="https://totosuper73.com/">https://totosuper73.com/</a>
 <a href="https://trendgyaan.com/">https://trendgyaan.com/</a>
 <a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
 <a href="https://lms.shantibhuana.ac.id/toto/">https://lms.shantibhuana.ac.id/toto/</a>
@@ -95,7 +96,6 @@
 <a href="https://centraloregonadvertising.com/">https://centraloregonadvertising.com/</a>
 <a href="https://london-skyline.com/">https://london-skyline.com/</a>
 <a href="https://nadaroadsafety.org/">https://nadaroadsafety.org/</a>
-<a href="https://totokl85.com/">https://totokl98.com/</a>
 <a href="https://bukaantotokl.com/">https://bukaantotokl.com/</a>
 <a href="https://www.enportadas.com/">https://www.enportadas.com/</a>
 <a href="https://www.wifeemade.com/">https://www.wifeemade.com/</a>
