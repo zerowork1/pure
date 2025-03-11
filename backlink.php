@@ -122,7 +122,6 @@
 <a href="https://manumminen.com/">https://manumminen.com/</a>
 <a href="https://artandsignature.com/">https://artandsignature.com/</a>
 <a href="https://gis-bpkad.blitarkota.com/">https://gis-bpkad.blitarkota.com/</a>
-<a href="https://linklist.bio/pisangbet">https://linklist.bio/pisangbet</a>
 <a href="https://yosemiteclimbingmuseum.com/">https://yosemiteclimbingmuseum.com/</a>
 <a href="https://www.rpg.co.id/xthai/">https://www.rpg.co.id/xthai/</a>
 <a href="https://www.unboundconcepts.com/">https://www.unboundconcepts.com/</a>
