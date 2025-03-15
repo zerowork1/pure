@@ -1,4 +1,9 @@
 <div style="display:none">
+<a href="https://www.rpg.co.id/assets/toto/">https://www.rpg.co.id/assets/toto/</a>
+<a href="https://www.rpg.co.id/assets/sdy/">https://www.rpg.co.id/assets/sdy/</a>
+<a href="https://www.rpg.co.id/assets/sgp/">https://www.rpg.co.id/assets/sgp/</a>
+<a href="https://www.rpg.co.id/assets/hk/">https://www.rpg.co.id/assets/hk/</a>
+<a href="https://www.rpg.co.id/assets/macau/">https://www.rpg.co.id/assets/macau/</a>
 <a href="https://147.182.141.1/">https://147.182.141.1/</a>
 <a href="https://24.199.97.231/">https://24.199.97.231/</a>
 <a href="https://joborder.ish.co.id/lol/">https://joborder.ish.co.id/lol/</a>
