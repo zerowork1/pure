@@ -17,7 +17,6 @@
 <a href="https://ft.usri.ac.id/">https://ft.usri.ac.id/</a>
 <a href="https://trendgyaan.com/">https://trendgyaan.com/</a>
 <a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
-<a href="https://sinovik.kemkes.go.id/page/toto/">https://sinovik.kemkes.go.id/page/toto/</a>
 <a href="https://wonosobo.pramukajateng.or.id/totokl/">https://wonosobo.pramukajateng.or.id/totokl/</a>
 <a href="https://referensipropertyindo.com/totokl/">https://referensipropertyindo.com/totokl/</a>
 <a href="https://prosperengineering.co.th/">https://prosperengineering.co.th/</a>
