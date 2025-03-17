@@ -24,7 +24,6 @@
 <a href="https://joydigitalmag.com/">https://joydigitalmag.com/</a>
 <a href="http://semnas.radenfatah.ac.id/">http://semnas.radenfatah.ac.id/</a>
 <a href="https://bukaantotokl.com/">https://bukaantotokl.com/</a>
-<a href="https://www.enportadas.com/">https://www.enportadas.com/</a>
 <a href="https://www.wifeemade.com/">https://www.wifeemade.com/</a>
 <a href="https://adirach.com/">https://adirach.com/</a>
 <a href="https://heylink.me/totokudalari/">https://heylink.me/totokudalari/</a>
