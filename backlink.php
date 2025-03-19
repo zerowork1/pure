@@ -16,6 +16,7 @@
 <a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a>
 <a href="https://disperindag.pamekasankab.go.id/kudalari/">https://disperindag.pamekasankab.go.id/kudalari/</a>
 <a href="http://santer.uinbanten.ac.id/">http://santer.uinbanten.ac.id/</a>
+<a href="http://siap.uinbanten.ac.id/">http://siap.uinbanten.ac.id/</a>
 <a href="https://ft.usri.ac.id/">https://ft.usri.ac.id/</a>
 <a href="https://trendgyaan.com/">https://trendgyaan.com/</a>
 <a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
