@@ -7,12 +7,12 @@
 <a href="https://www.rpg.co.id/assets/sgp/">https://www.rpg.co.id/assets/sgp/</a>
 <a href="https://www.rpg.co.id/assets/hk/">https://www.rpg.co.id/assets/hk/</a>
 <a href="https://www.rpg.co.id/assets/macau/">https://www.rpg.co.id/assets/macau/</a>
+<a href="https://totosuper68.com/">https://totosuper68.com/</a>
+<a href="https://sbopoker99.com/">https://sbopoker99.com/</a>
 <a href="https://147.182.141.1/">https://147.182.141.1/</a>
 <a href="https://24.199.97.231/">https://24.199.97.231/</a>
 <a href="https://joborder.ish.co.id/lol/">https://joborder.ish.co.id/lol/</a>
-<a href="https://sbopoker99.com/">https://sbopoker99.com/</a>
 <a href="https://totokl85.com/">https://totokl85.com/</a>
-<a href="https://totosuper73.com/">https://totosuper73.com/</a>
 <a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a>
 <a href="https://satpolpp.pamekasankab.go.id/kuda-lari/">https://satpolpp.pamekasankab.go.id/kuda-lari/</a>
 <a href="http://santer.uinbanten.ac.id/">http://santer.uinbanten.ac.id/</a>
