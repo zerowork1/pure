@@ -9,6 +9,7 @@
 <a href="https://www.rpg.co.id/assets/macau/">https://www.rpg.co.id/assets/macau/</a>
 <a href="https://totosuper68.com/">https://totosuper68.com/</a>
 <a href="https://sbopoker99.com/">https://sbopoker99.com/</a>
+<a href="http://siap.uinbanten.ac.id/">http://siap.uinbanten.ac.id/</a>
 <a href="https://147.182.141.1/">https://147.182.141.1/</a>
 <a href="https://24.199.97.231/">https://24.199.97.231/</a>
 <a href="https://joborder.ish.co.id/lol/">https://joborder.ish.co.id/lol/</a>
