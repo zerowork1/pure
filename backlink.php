@@ -1,12 +1,5 @@
 <div style="display:none">
-<a href="https://www.rpg.co.id/slot/">https://www.rpg.co.id/slot/</a>
-<a href="https://pa-baubau.go.id/wp-includes/assets/">https://pa-baubau.go.id/wp-includes/assets/</a>
-<a href="https://univ.iphi.or.id/public/">https://univ.iphi.or.id/public/</a>
-<a href="https://www.rpg.co.id/assets/toto/">https://www.rpg.co.id/assets/toto/</a>
-<a href="https://www.rpg.co.id/assets/sdy/">https://www.rpg.co.id/assets/sdy/</a>
-<a href="https://www.rpg.co.id/assets/sgp/">https://www.rpg.co.id/assets/sgp/</a>
-<a href="https://www.rpg.co.id/assets/hk/">https://www.rpg.co.id/assets/hk/</a>
-<a href="https://www.rpg.co.id/assets/macau/">https://www.rpg.co.id/assets/macau/</a>
+<a href="https://pisangbet.cloud/">https://pisangbet.cloud/</a>
 <a href="https://totosuper68.com/">https://totosuper68.com/</a>
 <a href="https://hamestrading.com/">https://hamestrading.com/</a>
 <a href="https://sbopoker99.com/">https://sbopoker99.com/</a>
