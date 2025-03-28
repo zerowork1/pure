@@ -13,14 +13,12 @@
 <a href="http://santer.uinbanten.ac.id/">http://santer.uinbanten.ac.id/</a>
 <a href="https://totokl98.com/">https://totokl98.com/</a>
 <a href="https://ft.usri.ac.id/">https://ft.usri.ac.id/</a>
-<a href="https://trendgyaan.com/">https://trendgyaan.com/</a>
 <a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
 <a href="https://wonosobo.pramukajateng.or.id/totokl/">https://wonosobo.pramukajateng.or.id/totokl/</a>
 <a href="https://referensipropertyindo.com/totokl/">https://referensipropertyindo.com/totokl/</a>
 <a href="https://prosperengineering.co.th/">https://prosperengineering.co.th/</a>
 <a href="https://assethot.com/">https://assethot.com/</a>
 <a href="https://siarvi.kemkes.go.id/">https://siarvi.kemkes.go.id/</a>
-<a href="https://joydigitalmag.com/">https://joydigitalmag.com/</a>
 <a href="http://semnas.radenfatah.ac.id/">http://semnas.radenfatah.ac.id/</a>
 <a href="https://bukaantotokl.com/">https://bukaantotokl.com/</a>
 <a href="https://www.wifeemade.com/">https://www.wifeemade.com/</a>
@@ -32,8 +30,6 @@
 <a href="http://absen.bbpomserang.com/">http://absen.bbpomserang.com/</a>
 <a href="https://lptqkaltim.or.id/">https://lptqkaltim.or.id/</a>
 <a href="https://ejurnal.unim.ac.id/">https://ejurnal.unim.ac.id/</a>
-<a href="https://lifeontwitter.com/">https://lifeontwitter.com/</a>  
-<a href="https://hipdroprecords.com/">https://hipdroprecords.com/</a>   
 <a href="https://bisnisdigital.darmajaya.ac.id/">https://bisnisdigital.darmajaya.ac.id/</a>
 <a href="https://pertanian.jatimprov.go.id/">https://pertanian.jatimprov.go.id/</a>
 <a href="https://manumminen.com/">https://manumminen.com/</a>
