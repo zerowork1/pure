@@ -12,6 +12,7 @@
 <a href="https://disperindag.pamekasankab.go.id/pacuan/">https://disperindag.pamekasankab.go.id/pacuan/</a>
 <a href="http://santer.uinbanten.ac.id/">http://santer.uinbanten.ac.id/</a>
 <a href="https://totokl98.com/">https://totokl98.com/</a>
+<a href="https://thenextreal.net/">https://thenextreal.net/</a>
 <a href="https://ft.usri.ac.id/">https://ft.usri.ac.id/</a>
 <a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
 <a href="https://wonosobo.pramukajateng.or.id/totokl/">https://wonosobo.pramukajateng.or.id/totokl/</a>
