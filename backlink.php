@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://pendidikan-fisika.uinsgd.ac.id/page/">https://pendidikan-fisika.uinsgd.ac.id/page/</a>
 <a href="https://pisangbet.store/">https://pisangbet.store/</a>
 <a href="https://pisangbet.cloud/">https://pisangbet.cloud/</a>
 <a href="https://totosuper68.com/">https://totosuper68.com/</a>
