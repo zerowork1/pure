@@ -4,6 +4,7 @@
 <a href="https://pisangbet.cloud/">https://pisangbet.cloud/</a>
 <a href="https://totosuper68.com/">https://totosuper68.com/</a>
 <a href="https://totokl71.com/">https://totokl71.com/</a>
+<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a>
 <a href="https://www.usaidwildlifeasia.org/">https://www.usaidwildlifeasia.org/</a> 
 <a href="https://yourfoodcareer.com/">https://yourfoodcareer.com/</a> 
 <a href="https://pisangtoto2025.com/">https://pisangtoto2025.com/</a>
@@ -13,8 +14,6 @@
 <a href="https://joborder.ish.co.id/lol/">https://joborder.ish.co.id/lol/</a>
 <a href="https://disperindag.pamekasankab.go.id/pacuan/">https://disperindag.pamekasankab.go.id/pacuan/</a>
 <a href="http://santer.uinbanten.ac.id/">http://santer.uinbanten.ac.id/</a>
-<a href="https://totokl98.com/">https://totokl98.com/</a>
-<a href="https://thenextreal.net/">https://thenextreal.net/</a>
 <a href="https://ft.usri.ac.id/">https://ft.usri.ac.id/</a>
 <a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
 <a href="https://wonosobo.pramukajateng.or.id/totokl/">https://wonosobo.pramukajateng.or.id/totokl/</a>
