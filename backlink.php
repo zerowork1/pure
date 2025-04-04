@@ -5,8 +5,7 @@
 <a href="https://pisangbet.cloud/">https://pisangbet.cloud/</a>
 <a href="https://totosuper68.com/">https://totosuper68.com/</a>
 <a href="https://totokl71.com/">https://totokl71.com/</a>
-<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a>
-<a href="https://www.usaidwildlifeasia.org/">https://www.usaidwildlifeasia.org/</a> 
+<a href="https://thenextreal.net/news/">https://thenextreal.net/news/</a> 
 <a href="https://yourfoodcareer.com/">https://yourfoodcareer.com/</a> 
 <a href="https://pisangtoto2025.com/">https://pisangtoto2025.com/</a>
 <a href="https://sbopoker99.com/">https://sbopoker99.com/</a>
