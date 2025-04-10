@@ -14,8 +14,8 @@
 <a href="https://147.182.141.1/">https://147.182.141.1/</a>
 <a href="https://24.199.97.231/">https://24.199.97.231/</a>
 <a href="https://joborder.ish.co.id/lol/">https://joborder.ish.co.id/lol/</a>
+<a href="https://disperindag.pamekasankab.go.id/ts/">https://disperindag.pamekasankab.go.id/ts/</a>
 <a href="https://disperindag.pamekasankab.go.id/pacuan/">https://disperindag.pamekasankab.go.id/pacuan/</a>
-<a href="http://santer.uinbanten.ac.id/">http://santer.uinbanten.ac.id/</a>
 <a href="https://ft.usri.ac.id/">https://ft.usri.ac.id/</a>
 <a href="https://regutembakdalam.it.com/">https://regutembakdalam.it.com/</a>
 <a href="https://wonosobo.pramukajateng.or.id/totokl/">https://wonosobo.pramukajateng.or.id/totokl/</a>
