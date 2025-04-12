@@ -41,6 +41,4 @@
 <a href="https://manumminen.com/">https://manumminen.com/</a>
 <a href="https://artandsignature.com/">https://artandsignature.com/</a>
 <a href="https://gis-bpkad.blitarkota.com/">https://gis-bpkad.blitarkota.com/</a>
-<a href="https://esteghlalshop.com/">https://esteghlalshop.com/</a>
-<a href="https://fightthebull.com/">https://fightthebull.com/</a>
 </div>
