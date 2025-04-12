@@ -17,7 +17,6 @@
 <a href="https://joborder.ish.co.id/lol/">https://joborder.ish.co.id/lol/</a>
 <a href="https://disperindag.pamekasankab.go.id/ts/">https://disperindag.pamekasankab.go.id/ts/</a>
 <a href="https://disperindag.pamekasankab.go.id/pacuan/">https://disperindag.pamekasankab.go.id/pacuan/</a>
-<a href="https://disperindag.pamekasankab.go.id/kudalari/">https://disperindag.pamekasankab.go.id/kudalari/</a>
 <a href="https://ft.usri.ac.id/">https://ft.usri.ac.id/</a>
 <a href="https://prosperengineering.co.th/">https://prosperengineering.co.th/</a>
 <a href="https://assethot.com/">https://assethot.com/</a>
